@@ -2,7 +2,7 @@
 
 | Versión | Páginas | Canva | Estado |
 |---|---:|---|---|
-| **V4.06.1 REV03** | **134 (PDF local)** | Basada gráficamente en REV02.1 | **Nueva revisión literaria aplicada. Texto en GitHub; PDF de arte final local no subido** |
+| **V4.06.1 REV03** | **134 (PDF local)** | Basada gráficamente en REV02.1 | **Nueva revisión literaria aplicada; manuscrito y PDF de lectura publicados en GitHub. PDF de alta resolución aún fuera del repo** |
 | **V4.06.1 REV02.1** | **139** | [DAHauUTL81o](https://www.canva.com/design/DAHauUTL81o/edit) | **ÚLTIMA COMPOSICIÓN CANVA VERIFICADA; histórica y preservada** |
 | V4.06.1 REV02 | 139 | [DAHaubcoLn8](https://www.canva.com/design/DAHaubcoLn8/edit) | Histórica: texto recompuesto |
 | V4.06.1 aperturas | 16 | [DAHauOCSSDk](https://www.canva.com/design/DAHauOCSSDk/edit) | Prueba de restitución |
