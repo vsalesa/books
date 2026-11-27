@@ -101,6 +101,7 @@ for ci,(name,body) in enumerate(chapters.items()):
         y+=6
     number(p)
 # Index with updated page numbers
+index=P[2]  # reload page after page insertions; prior handle is orphaned
 index.insert_text((184,83),"Índice",fontname="FSB",fontsize=20)
 index.draw_line((58,104),(W-58,104),color=(.4,.4,.4),width=.5)
 y=133
