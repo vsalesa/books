@@ -2,6 +2,10 @@
 
 ## Confirmado
 
+- [x] REV03 creada y aplicada con 25 operaciones documentadas: [manuscrito revisado](fuentes/MANUSCRITO_V4_06_1_REV03_CIERRES_APLICADOS.md). No se altera REV02.1.
+- [x] PDF ilustrado local V4.06.1 REV03 de **134 páginas A5** generado a partir de PDF original y arte gráfico, sin desbordamientos de texto detectados. SHA-256 `d945fd4ea4c4bbec0b881d8be8daf5cedbfa7426303f4444788f74880a810641`.
+- [x] Workflow [compilar-cuanto-mejor-peor-rev03.yml](https://github.com/vsalesa/books/actions/workflows/compilar-cuanto-mejor-peor-rev03.yml) creado para publicar **PDF de lectura** desde fuente revisada y miniaturas de Canva.
+
 - [x] Repo `vsalesa/books` accesible y con permiso de escritura. Carpeta `cuanto-mejor-peor/` creada.
 - [x] Última **versión Canva** verificada: `DAHauUTL81o`, V4.06.1 REV02.1, 139 páginas A5.
 - [x] Respaldos textuales en GitHub: extracción del contenido de Canva REV02.1, extracción de lectura DOCX V4.06 y fuente Markdown V4.04 (**tres orígenes diferentes**).
@@ -11,6 +15,8 @@
 - [x] Ejemplares V4.06 PDF y Word originales localizados en los archivos de conversación; aún **no están subidos como binarios** a este repositorio.
 
 ## No confirmado / pendiente
+
+- [ ] **Confirmar en GitHub el PDF binario REV03**: PDF ilustrado local (44 MB) y compilación de lectura generada mediante Actions son dos artefactos distintos; verificar el resultado del workflow, sin declararlos equivalentes.
 
 - [ ] Comprobar si existe en una sesión Codex inaccesible una versión posterior a REV02.1; el informe aportado por el usuario del 12/11 describe también REV02.1, no otra versión.
 - [ ] Recuperar los binarios originales **V4.06.1 REV02.1** del entorno local de Codex: PDF recompuesto, ZIP de materiales, seis PNG nuevos, manifest de imágenes, Word sincronizado si existe. La ruta `C:/Users/adria/Documents/Codex/2026-11-12/referenced-chatgpt-conversation-this-is-an/outputs/` solo es accesible en el equipo del autor, no desde este entorno.
