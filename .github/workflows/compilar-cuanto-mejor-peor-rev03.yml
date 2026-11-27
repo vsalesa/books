@@ -40,4 +40,5 @@ jobs:
           git config user.email "41898282+github-actions[bot]@users.noreply.github.com"
           git add cuanto-mejor-peor/materiales/miniaturas_canva_REV02/ cuanto-mejor-peor/ediciones/V4_06_1_REV03/
           git diff --cached --quiet || git commit -m "publish(book): REV03 PDF A5 y miniaturas de respaldo"
-          git push
+          git pull --rebase origin main
+          git push origin main
