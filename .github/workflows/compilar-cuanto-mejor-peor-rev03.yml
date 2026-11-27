@@ -1,0 +1,43 @@
+name: Publicar Cuanto mejor peor REV03 PDF
+on:
+  workflow_dispatch:
+  push:
+    paths:
+      - "cuanto-mejor-peor/fuentes/MANUSCRITO_V4_06_1_REV03_CIERRES_APLICADOS.md"
+      - "cuanto-mejor-peor/scripts/compilar_rev03_en_github.py"
+      - "cuanto-mejor-peor/materiales/canva_rev02_miniaturas_origen_REV03.json"
+      - ".github/workflows/compilar-cuanto-mejor-peor-rev03.yml"
+permissions:
+  contents: write
+jobs:
+  compilar-y-publicar:
+    runs-on: ubuntu-latest
+    timeout-minutes: 30
+    steps:
+      - uses: actions/checkout@v4
+        with:
+          persist-credentials: true
+      - name: Preparar entorno y fuente serif
+        run: |
+          sudo apt-get update -qq
+          sudo apt-get install -y -qq fonts-freefont-ttf
+          python -m pip install --quiet 'PyMuPDF>=1.25,<2' 'Pillow>=11,<13'
+      - name: Descargar miniaturas y maquetar PDF A5
+        run: python cuanto-mejor-peor/scripts/compilar_rev03_en_github.py
+      - name: Comprobar integridad y publicar resultado en rama
+        run: |
+          python - <<'PY'
+          from pathlib import Path
+          import fitz
+          p=Path('cuanto-mejor-peor/ediciones/V4_06_1_REV03/Cuanto_mejor_peor_V4_06_1_REV03_LECTURA_GITHUB.pdf')
+          assert p.exists() and p.stat().st_size>100_000
+          d=fitz.open(p)
+          assert len(d)>100
+          assert "Bajamos al tercero." in d[-1].get_text()
+          print("PDF validado:",len(d),"paginas",p.stat().st_size,"bytes")
+          PY
+          git config user.name "github-actions[bot]"
+          git config user.email "41898282+github-actions[bot]@users.noreply.github.com"
+          git add cuanto-mejor-peor/materiales/miniaturas_canva_REV02/ cuanto-mejor-peor/ediciones/V4_06_1_REV03/
+          git diff --cached --quiet || git commit -m "publish(book): REV03 PDF A5 y miniaturas de respaldo"
+          git push
