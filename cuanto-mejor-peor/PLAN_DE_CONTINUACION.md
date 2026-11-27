@@ -1,8 +1,12 @@
 # Plan de continuación — Cuanto mejor, peor
 
 **Actualizado:** 27 de noviembre de 2026  
-**Versión vigente comprobada:** **V4.06.1 REV02.1** — **139 páginas A5**, Canva `DAHauUTL81o` ([abrir edición](https://www.canva.com/design/DAHauUTL81o/edit)).  
+**Base de maquetación Canva:** **V4.06.1 REV02.1** — **139 páginas A5**, Canva `DAHauUTL81o` ([abrir edición](https://www.canva.com/design/DAHauUTL81o/edit)).  
 **Autor:** Víctor Salesa Sanz.
+
+## Revisión literaria posterior: REV03 (27-11-2026)
+
+**Ya aplicada** y versionada: [manuscrito revisado](fuentes/MANUSCRITO_V4_06_1_REV03_CIERRES_APLICADOS.md) y [PDF REV03 de lectura en GitHub](ediciones/V4_06_1_REV03/Cuanto_mejor_peor_V4_06_1_REV03_LECTURA_GITHUB.pdf), **134 páginas A5**. El PDF de lectura se recompiló con 30 miniaturas (no maestros gráficos); el PDF local de alta resolución (44 MB) todavía no está respaldado en GitHub. No declarar REV03 certificada para KDP.
 
 ## Resumen ejecutivo
 
