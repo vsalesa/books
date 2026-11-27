@@ -6,6 +6,8 @@
 
 ## Empezar por aquí
 
+- **[Norma de trabajo: guardar todos los archivos nuevos en GitHub](AGENTS.md)**
+
 - **[Plan de continuación, estado y próximas tareas](PLAN_DE_CONTINUACION.md)**
 - [Seguimiento en GitHub Issues](https://github.com/vsalesa/books/issues)
 - [Decisiones y errores históricos que no debemos repetir](editorial/HISTORIAL_DECISIONES_Y_ERRORES.md)
