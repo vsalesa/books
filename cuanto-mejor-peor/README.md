@@ -16,7 +16,7 @@
 
 - **[Manuscrito revisado íntegro](fuentes/MANUSCRITO_V4_06_1_REV03_CIERRES_APLICADOS.md)**, texto respaldado en GitHub.
 - [Registro de cambios reales antes/después](editorial/ANEXO_CAMBIOS_LITERALES_CIERRES_REV02_1_2026-11-27.md).
-- [Compilación PDF automatizada en GitHub](https://github.com/vsalesa/books/actions/workflows/compilar-cuanto-mejor-peor-rev03.yml). La edición de lectura se publicará en `ediciones/V4_06_1_REV03/` solo si el workflow finaliza correctamente; no equivale al PDF de arte final de alta resolución.
+- **[PDF REV03 de lectura publicado en GitHub](ediciones/V4_06_1_REV03/Cuanto_mejor_peor_V4_06_1_REV03_LECTURA_GITHUB.pdf)**: 134 páginas A5, 5.735.198 bytes; compilación confirmada mediante GitHub Actions. Usa miniaturas de Canva (no arte de imprenta).
 - PDF ilustrado local REV03: 134 páginas, SHA-256 `d945fd4ea4c4bbec0b881d8be8daf5cedbfa7426303f4444788f74880a810641`. **Todavía no consta respaldo binario de esta copia en GitHub**.
 
 ## Edición vigente
