@@ -13,7 +13,9 @@
 | Anexo editorial de cambios literales de cierres (12 intervenciones) | Sí, propuesta de revisión | **SUBIDO** — [editorial/ANEXO_CAMBIOS_LITERALES_CIERRES_REV02_1_2026-11-27.md](../editorial/ANEXO_CAMBIOS_LITERALES_CIERRES_REV02_1_2026-11-27.md); **NO aplicado al libro** |
 | Manuscrito V4.06.1 REV03, cierres aplicados | Sí | **SUBIDO** — [fuentes/MANUSCRITO_V4_06_1_REV03_CIERRES_APLICADOS.md](../fuentes/MANUSCRITO_V4_06_1_REV03_CIERRES_APLICADOS.md) |
 | PDF ilustrado local REV03 (134 páginas A5; 44.008.375 bytes) | Sí; generado y verificado en sesión | **NO SUBIDO COMO BINARIO A GH**; SHA-256 `d945fd4ea4c4bbec0b881d8be8daf5cedbfa7426303f4444788f74880a810641` |
-| Script y workflow para PDF de lectura REV03 | Sí | **SUBIDOS** — [script](../scripts/compilar_rev03_en_github.py) / [workflow](https://github.com/vsalesa/books/actions/workflows/compilar-cuanto-mejor-peor-rev03.yml); compilación pendiente de verificar |
+| PDF REV03 de lectura (134 páginas A5, 5.735.198 bytes) | Sí | **SUBIDO Y VERIFICADO EN GITHUB** — [edición lectura](../ediciones/V4_06_1_REV03/Cuanto_mejor_peor_V4_06_1_REV03_LECTURA_GITHUB.pdf); SHA-256 `6991b224b39ef2771b6270f2d174f65d3df78d8c4ba2e327491e5df182b11b4c`; miniaturas, no resolución de imprenta |
+| Miniaturas de respaldo (30 páginas fuente, 2.848.298 bytes) | Sí | **SUBIDAS** — [miniaturas_canva_REV02](miniaturas_canva_REV02/); no equivalen a PNG originales |
+| Script y workflow para PDF de lectura REV03 | Sí | **SUBIDOS Y EJECUTADOS** — [script](../scripts/compilar_rev03_en_github.py) / [workflow](https://github.com/vsalesa/books/actions/workflows/compilar-cuanto-mejor-peor-rev03.yml); [ejecución exitosa #3](https://github.com/vsalesa/books/actions/runs/46047657471) |
 | PDF vigente REV02.1 (139 páginas) | **Sí, en Canva**, archivo original local Codex no transferido | **NO SUBIDO** |
 | DOCX vigente REV02.1 sincronizado | No consta validado | **NO EXISTE VALIDADO** |
 | PDF + DOCX fuente V4.06 (129 páginas) | Sí, originales recuperados del chat | **NO SUBIDOS COMO BINARIOS** |
