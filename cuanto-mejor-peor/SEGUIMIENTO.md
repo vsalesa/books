@@ -5,6 +5,7 @@
 - [x] Repo `vsalesa/books` accesible y con permiso de escritura. Carpeta `cuanto-mejor-peor/` creada.
 - [x] Última **versión Canva** verificada: `DAHauUTL81o`, V4.06.1 REV02.1, 139 páginas A5.
 - [x] Respaldos textuales en GitHub: extracción del contenido de Canva REV02.1, extracción de lectura DOCX V4.06 y fuente Markdown V4.04 (**tres orígenes diferentes**).
+- [x] Propuesta editorial **ANTES → DESPUÉS** de 12 cierres y ajustes de continuidad, con fragmentos literales y traslados entre capítulos: [ANEXO_CAMBIOS_LITERALES_CIERRES_REV02_1_2026-11-27.md](editorial/ANEXO_CAMBIOS_LITERALES_CIERRES_REV02_1_2026-11-27.md). **Solo propuesta; sin cambios a manuscrito/Canva/PDF**.
 - [x] Registro maestro histórico de 42 personajes y documentación editorial/historial conservados.
 - [x] Identificadas las seis ilustraciones nuevas y sus referencias Canva.
 - [x] Ejemplares V4.06 PDF y Word originales localizados en los archivos de conversación; aún **no están subidos como binarios** a este repositorio.
