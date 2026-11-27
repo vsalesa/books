@@ -10,6 +10,7 @@
 | Extracción de lectura del DOCX original V4.06 | Sí | **SUBIDO** — [fuentes/V4_06_DOCX_original_extraccion_lectura.txt](../fuentes/V4_06_DOCX_original_extraccion_lectura.txt) |
 | Manuscrito literario V4.04 (Markdown) | Sí | **SUBIDO** — [fuentes/MANUSCRITO_V4_04_REVISION_LITERARIA_01.md](../fuentes/MANUSCRITO_V4_04_REVISION_LITERARIA_01.md) |
 | Reparto maestro V1, 42 personajes | Sí | **SUBIDO** — [personajes/REPARTO_MAESTRO_CERRADO_V1.md](../personajes/REPARTO_MAESTRO_CERRADO_V1.md) |
+| Anexo editorial de cambios literales de cierres (12 intervenciones) | Sí, propuesta de revisión | **SUBIDO** — [editorial/ANEXO_CAMBIOS_LITERALES_CIERRES_REV02_1_2026-11-27.md](../editorial/ANEXO_CAMBIOS_LITERALES_CIERRES_REV02_1_2026-11-27.md); **NO aplicado al libro** |
 | PDF vigente REV02.1 (139 páginas) | **Sí, en Canva**, archivo original local Codex no transferido | **NO SUBIDO** |
 | DOCX vigente REV02.1 sincronizado | No consta validado | **NO EXISTE VALIDADO** |
 | PDF + DOCX fuente V4.06 (129 páginas) | Sí, originales recuperados del chat | **NO SUBIDOS COMO BINARIOS** |
