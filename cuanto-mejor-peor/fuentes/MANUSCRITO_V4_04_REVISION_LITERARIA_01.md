@@ -1,0 +1,1848 @@
+# CUANTO MEJOR, PEOR
+
+Víctor Salesa Sanz
+
+# Índice
+
+
+## Prólogo
+
+
+# Hay que tener cuidado con los que lo arreglan todo
+
+No recuerdo en qué momento empecé a desconfiar de las personas que prometen arreglarlo todo. Es posible que fuese la tercera vez que inauguraron la misma carretera. O quizá cuando descubrí que el semáforo de mi calle llevaba seis meses averiado y cuatro informes describiendo la gravedad de su estado.
+
+Escribir sobre política entraña un riesgo: que alguien crea que uno ha escogido bando. Naturalmente, lo he escogido. Estoy del lado de quien necesita cruzar la calle cuando el semáforo funciona y también cuando no. Ya sé que no es una posición especialmente rentable en una tertulia. En las tertulias es mejor defender un color; evita tener que mirar cómo está el tráfico.
+
+Los pueblos que aparecen aquí no existen. O eso dicen los mapas. Sus habitantes se parecen lo suficiente a los nuestros como para que convenga no ir buscando equivalencias. En San Bartolomé de la Cuesta hay gente honrada, gandules muy preparados, funcionarios que sostienen un edificio entero con un clip y concejales incapaces de distinguir una solución de una fotografía de la solución. A veces es la misma persona, antes y después del café.
+
+Hay políticos que tropiezan porque no saben dónde pisan. Otros sí lo saben y calculan exactamente sobre quién van a caer. Lo admirable es que ambos han conseguido presentarse como la única protección frente al otro. Una proeza de la convivencia que merece, como poco, su propia placa conmemorativa.
+
+No pretendo librarme del asunto con una risa superior. He elegido candidatos para evitar a otros, he perdonado errores porque me caía bien quien los cometía y he protestado contra trámites que considero imprescindibles cuando los cumple otro. Me gustaría decir que es una cuestión de juventud. Lamentablemente, cada vez tengo menos de esa excusa.
+
+Las páginas siguientes son historias de lugares inventados, reflexiones que no siempre encajan en ellas y dibujos que a veces las contradicen. Si algo le resulta demasiado absurdo para ser creíble, no se preocupe. En San Bartolomé los vecinos tampoco suelen creérselo hasta que reciben la notificación.
+
+## PARTE I  ·  EL ARTE DE NO ARREGLAR NADA
+
+# Una mañana de noviembre
+
+La primera señal de que aquel día iba a ser importante fue que el presidente de la Diputación se puso corbata. No era algo excepcional en sí mismo, pero aquella mañana eligió una que había recibido como regalo de un empresario veinte años atrás y que solo utilizaba en tres circunstancias: bodas con fotógrafo, inauguraciones con ministro y funerales en los que esperaba ocupar la primera fila.
+
+En la plaza de San Bartolomé de la Cuesta habían montado un escenario. Diecisiete operarios trabajaban desde las seis de la mañana para que a las once no quedase rastro de que alguien había trabajado. Una cuadrilla repasaba las juntas de las baldosas, otra instalaba sillas y la tercera buscaba al electricista que había dejado de contestar al teléfono. El electricista estaba bajo el escenario, con medio cuerpo metido en una arqueta y la amarga certeza de que nadie recordaría su nombre si los micrófonos funcionaban.
+
+A las diez y media empezó a llegar la comitiva. Evaristo Mangarrán, alcalde por los Azules, saludaba con ambas manos. Tenía un sistema de reconocimiento facial notable: identificaba instantáneamente a quien podía abrirle una puerta y tardaba meses en recordar al encargado de cerrarla. Candelaria Peñarrocha, portavoz de los Coloraos, avanzaba unos metros por detrás, examinando el programa con una expresión que podía servir tanto para una ceremonia institucional como para un interrogatorio.
+
+La obra que los reunía había tardado cinco años. Nadie se ponía de acuerdo en cuánto había costado, circunstancia bastante más común de lo que debería en un proyecto cuya principal función era precisamente poner de acuerdo a los ciudadanos. Se llamaba Centro Comarcal de Encuentro y Participación. El nombre había sobrevivido a tres corporaciones y a un concurso de ideas. Lo que no había sobrevivido eran los aseos de la segunda planta, que seguían esperando una pieza de fontanería de cuarenta y seis euros.
+
+A las once y cinco comenzó el discurso. El presidente habló de futuro, proximidad, compromiso y ciudadanos. Lo hizo de tal modo que un extranjero habría pensado que se estaban inaugurando cuatro edificios distintos, uno por sustantivo. Evaristo agradeció a su equipo el esfuerzo y recordó que los Azules habían desbloqueado el proyecto. Candelaria, entrevistada a continuación por Radio Puchero, subrayó que la iniciativa había nacido durante el mandato de los Coloraos. El redactor preguntó si eso significaba que la obra era una buena noticia.
+
+—Por supuesto —dijo ella—. Aunque resulta preocupante que se quiera ocultar quién la puso en marcha.
+
+A pocos metros, un hombre con un maletín buscaba desesperadamente al alcalde. Tenía una hoja del servicio de prevención y una pregunta sencilla. ¿Quién había autorizado el aforo del salón principal? La respuesta estaba en la documentación, si es que lograban encontrar la documentación, pero la carpeta azul llevaba una hora viajando entre las manos de siete personas cuya mayor aportación al evento consistía en no parecer nerviosas.
+
+Mientras tanto, la banda municipal se preparaba para tocar. Un trompetista preguntó dónde debían colocarse. Le señalaron la escalera de emergencia.
+
+De la inauguración quedaron fotografías para tres periódicos, dos boletines y un archivo que nadie consultaría hasta que alguien necesitase demostrar que había estado allí. Hay imágenes oficiales en las que no cabe una persona más y, sin embargo, falta siempre alguien.
+
+En la segunda fotografía no aparecía el alcalde. Eso fue lo que hizo que Aurelio Perdigón se fijara en ella. Los alcaldes suelen aparecer en todas las fotografías de sus inauguraciones, a veces incluso cuando las inauguraciones todavía no han ocurrido. Aquella imagen, sin embargo, mostraba el vestíbulo del Centro Comarcal de Encuentro y Participación, una caja de herramientas abierta y a un señor con un abrigo demasiado grueso incluso para aquel noviembre templado.
+
+El fotógrafo municipal había enviado las imágenes al *Pregonero de la Vega* dentro de una carpeta llamada «INAUGURACION DEFINITIVAS BUENAS 3». La numeración sugería una historia que nadie había pedido investigar. En la primera fotografía, Evaristo Mangarrán cortaba la cinta. En la tercera, Evaristo estrechaba una mano. En la cuarta, Evaristo sonreía ante una placa donde podía leerse su nombre en letras suficientemente grandes como para ser visto desde el aparcamiento. En la segunda no había rastro de Evaristo. De ahí su atractivo.
+
+El hombre del abrigo sostenía un paquete pequeño y hablaba con Remigio Tardón, el concejal de Obras. El paquete podía ser una bisagra, una caja de bombones o una pieza para arreglar el ascensor. Aurelio amplió la fotografía hasta que los píxeles se convirtieron en adoquines y tuvo que aceptar que la tecnología tampoco era omnipotente.
+
+—¿Y este? —preguntó a Lucía, la nueva redactora.
+
+—Uno que estaba allí.
+
+—Eso ya lo sé. Yo también estaba allí y no salgo.
+
+—Tú llegaste tarde.
+
+Aurelio se quedó un momento mirando la pantalla. Era director de un semanario de ocho páginas, seis si descontábamos los anuncios de tractores, y había aprendido que una pregunta es periodística cuando uno está dispuesto a escuchar una respuesta decepcionante. Aquello no tenía pinta de conspiración. Probablemente el señor llevara una pieza de fontanería. Sin embargo, había algo inquietante en que apareciera en el edificio un hombre sin identificación mientras se celebraba el acto más identificado de la comarca.
+
+Lucía reconoció el abrigo antes que la cara. Lo había visto tres días atrás en La Parada, sentado junto a un individuo con paraguas de mango de pato. Manolo había tenido que pedirles que apartaran sus carpetas para servir el flan.
+
+—No sabemos nada —dijo Aurelio.
+
+—Eso nunca nos ha impedido publicar el resultado del concurso de migas.
+
+Aurelio le pidió que averiguara el nombre, pero añadió inmediatamente que no llamara al Ayuntamiento hasta tener algo concreto. Detestaba que lo acusaran de perseguir a nadie. En especial cuando todavía no estaba claro a quién.
+
+En el bar, Manolo limpió el mismo vaso durante el tiempo necesario para que Lucía entendiera que no iba a contarle una conversación privada. Sabía guardar secretos con una profesionalidad que habría hecho fortuna en cualquier ministerio. La diferencia es que Manolo tenía que rendir cuentas de cada café servido.
+
+—No te pido qué hablaron. Te pregunto si alguien dejó una tarjeta.
+
+—Las tarjetas se quedan en la mesa a veces —dijo Manolo—. También las servilletas. Y más de un matrimonio ha dejado por aquí la dignidad, pero de eso no hago archivo.
+
+Lucía pidió una tostada y esperó. Los buenos periodistas saben esperar. Los malos también, pero suelen hacerlo en una tertulia y cobran más.
+
+Acabó apareciendo el hombre del abrigo al día siguiente, esta vez sin abrigo. Tenía una cara muy corriente, ese tipo de rostro que uno olvida en el mismo instante de verlo. Se llamaba Faustino Jadraque. Había trabajado de escolta, de encargado de seguridad y de persona de confianza de Lorenzo Ábrego, antiguo responsable de Transportes en un gobierno de la capital. Tenía el teléfono de mucha gente, según dijo, porque siempre había sido «muy de solucionar problemas».
+
+Esta expresión ha arruinado más conversaciones de las que parece. Un problema es algo que molesta. Una solución es algo que lo hace desaparecer. Entre ambos conceptos caben un técnico, una llamada y, en determinados ambientes, una factura cuya descripción invita a la imaginación.
+
+Faustino estaba visitando la comarca para interesarse por la reforma de un pequeño almacén logístico. Lucía le preguntó por qué había ido al Centro Comarcal.
+
+—A saludar.
+
+—¿Al concejal?
+
+—A quien me encontrase.
+
+—¿Con una caja?
+
+Faustino rio con la alegría de quien ya ha decidido que no necesita responder.
+
+—Era un detalle.
+
+—¿Para Remigio?
+
+—Para el edificio.
+
+Aquella noche Lucía escribió una noticia muy corta. Decía que una persona vinculada en el pasado a un alto cargo había visitado el centro municipal, que el Ayuntamiento confirmaba la visita y que no constaba participación del visitante en ningún contrato de aquella obra. Ni una insinuación más. Aurelio leyó la pieza dos veces y le puso el titular: «UN ANTIGUO ASESOR VISITÓ EL CENTRO COMARCAL».
+
+Los lectores la compartieron poco. Les pareció que faltaba algo. En internet hubo quien resolvió el problema con una frase: «Lo que no cuentan». Es una ventaja notable de nuestra época. Para publicar lo que no sabemos, ya ni siquiera necesitamos inventarlo; basta con acusar a otro de ocultarlo.
+
+Una semana después apareció una factura antigua. No era de Faustino, ni del ascensor, ni de ningún almacén. Era una factura de la reparación del cartel inaugural, sustituido después de que el nombre del alcalde anterior hubiera quedado tapado por el nuevo. La cantidad era modesta. El concepto, precioso: «Adecuación de memoria institucional».
+
+Lucía quería publicarla. Aurelio también, pero se resistía a perder de vista al hombre del abrigo. A veces el periodismo consiste en investigar algo enorme y encontrar una pequeña mezquindad. El problema es que la pequeña mezquindad suele estar documentada y lo enorme todavía no.
+
+—Publica la factura —dijo al final—. Lo demás, si aparece.
+
+Lucía guardó la fotografía del abrigo en una carpeta. No porque sospechara un delito. Porque Faustino, al despedirse, le había preguntado por el nombre de su padre. Lo conocía de cuando trabajaba en el ferrocarril de Villacobos.
+
+Y eso, por alguna razón que todavía no sabía explicar, le había inquietado mucho más que la caja.
+
+La mañana de la cinta, por supuesto, nadie podía saber que aquella ausencia tendría interés. Evaristo todavía estaba ocupado decidiendo dónde colocar las manos.
+
+El alcalde, viendo que la foto estaba a punto de realizarse, pidió a todos que se acercaran. El fotógrafo levantó la cámara. A la izquierda quedaron el presidente y su corbata. A la derecha, los portavoces, agrupados según una geometría política que permitía estar juntos sin rozarse. En primera fila apareció también una mujer que nadie reconoció. Llevaba un chaleco amarillo, sujetaba una caja de herramientas y solo había subido para avisar de que el ascensor seguía parado.
+
+No conozco muchas profesiones en las que una fotografía baste para demostrar que las cosas funcionan. En la mía, si compro un libro y no consigo leerlo, nadie considera un éxito que me haga una foto junto a la librería. En política, sin embargo, existen ceremonias cuyo principal objetivo consiste en dejar constancia de que se ha producido una ceremonia. Lo demás ya se irá viendo.
+
+A las doce y siete, el Centro Comarcal de Encuentro y Participación quedó oficialmente abierto.
+
+A las doce y nueve, el conserje cerró la puerta hasta nuevo aviso.
+
+El problema de las fotografías de grupo no es solamente quién aparece. También es quién sigue trabajando después de que el fotógrafo se haya ido.
+
+En la primera fila de la sala había una mujer con un uniforme de limpieza. Nadie sabía si pertenecía a la empresa adjudicataria o al servicio municipal porque el logotipo de la manga había desaparecido después de muchas lavadoras. Se llamaba Belén Rueda y llevaba doce años limpiando el auditorio de Valdeperdices. Aquella mañana le habían pedido que asistiera a un acto sobre la dignidad del trabajo.
+
+No es ninguna contradicción que a alguien lo inviten a escuchar discursos mientras trabaja. Nuestro país ha construido gran parte de su tradición festiva sobre la capacidad de pedirle al camarero que disfrute de la fiesta sin dejar de servir cervezas.
+
+Belén se sentó en el pasillo, junto a la salida de emergencia, por si tenía que salir antes. A las once terminaba su turno, pero le habían explicado que su presencia era importante. El concejal de Empleo iba a firmar un pacto local por la calidad laboral con sindicatos, patronal y asociaciones. El papel tenía catorce páginas, una portada azul marino y un párrafo en el que todos los firmantes se comprometían solemnemente a promover el compromiso.
+
+—¿Y tú qué opinas? —le preguntó una mujer con acreditación.
+
+—Que huele a lejía.
+
+La otra sonrió sin comprender. Hay una distancia enorme entre representar a los trabajadores y tener una conversación con uno antes de que le cambie el olor de las manos.
+
+Arriba, en la mesa de autoridades, había seis sillas. Cinco tenían botellas de agua y carteles con nombres. La sexta conservaba una pegatina que decía «RESERVADO». Llegó tarde un dirigente sindical de voz profunda y sonrisa antigua. Saludó a todo el mundo, ocupó la silla y empezó disculpándose por el tráfico. Después habló de precariedad con una precisión admirable: supo nombrar cada variante sin mencionar la empresa donde trabajaba Belén, cuyo contrato había sido renovado por semanas durante medio año.
+
+El empresario local que tomó la palabra a continuación defendió el mérito. El mérito era algo que apreciaba especialmente desde que su hijo, a los veintidós años, había obtenido la dirección comercial de la compañía familiar. No quería privilegios. Quería esfuerzo, formación y un mercado libre de interferencias, salvo las subvenciones industriales, que tenían la consideración jurídica de apoyo estratégico.
+
+Mientras lo escuchaba recordé a un antiguo jefe que nos exigía puntualidad y aparecía a las diez y media porque su trabajo era estratégico. Una vez llegué cuatro minutos tarde por acompañar a mi hijo al médico y me explicó durante veinte la importancia del compromiso. La charla concluyó a las once y cuarenta; fue lo más cerca que estuve aquel día de cobrar horas extra.
+
+Belén recibió un mensaje de la encargada: «¿Terminas? Hay que recoger escenario». Guardó el móvil. En la pantalla proyectaban una diapositiva con la palabra ESCUCHA en letras de medio metro.
+
+La periodista Lucía Perdigón había venido para cubrir el pacto. Al comprobar que todas las intervenciones decían lo mismo con distinta corbata, decidió entrevistar a los asistentes. Preguntó por el estado de las nóminas, por los turnos, por la subcontratación del servicio. Una responsable municipal le aseguró que eran cuestiones técnicas y que el acto estaba dedicado a los principios generales.
+
+—¿Y las condiciones particulares? —preguntó Lucía.
+
+—Se tratarán en las mesas de seguimiento.
+
+Belén se levantó. Ya no podía esperar más: en el escenario había comenzado a caer confeti de una máquina que alguien había alquilado para celebrar la firma. Aún estaban hablando del esfuerzo de los trabajadores cuando ella se agachó para recogerlo.
+
+Un fotógrafo le pidió que se desplazara un poco a la derecha porque su cubo salía en la imagen de las autoridades. Belén obedeció. Es un gesto pequeño, tanto que apenas merece una línea, pero lo he recordado más que cualquiera de los discursos. Un país puede pasarse meses discutiendo si una palabra es ofensiva y no advertir a quien le ordena apartarse para que no estropee una fotografía sobre la dignidad.
+
+Cuando terminó el acto, el concejal salió por la puerta lateral. Un asesor le indicó que los trabajadores estaban contentos. Lo deducía del número de asistentes y de los aplausos. Belén había aplaudido también, aunque con una mano sostenía la escoba. No sé si el dato consta en el informe de evaluación. Debería.
+
+Al día siguiente, el periódico publicó la fotografía del pacto. En el pie se leía: «Amplio respaldo social al nuevo compromiso por el empleo digno». En una esquina asomaba el mango amarillo de la escoba.
+
+A Belén le renovaron el contrato un mes más. La llamaron para felicitarla por su implicación en el evento y para preguntarle si podía volver el sábado a limpiar una cena de gala.
+
+—¿Habrá confeti? —preguntó.
+
+—Puede ser.
+
+—Entonces que me traigan dos bolsas grandes.
+
+No hubo ninguna reclamación. Belén necesitaba el trabajo y sabía distinguir perfectamente la ironía de la nómina. Esa habilidad, por desgracia, no suele aparecer en los convenios colectivos.
+
+Aquellos nombres no interesaron demasiado a la comitiva. En una inauguración, la dignidad del trabajo suele medirse por el tiempo que tarda en desaparecer el último operario del encuadre.
+
+Los operarios continuaron trabajando por la tarde. No salieron en la prensa. La imagen de portada mostraba a las autoridades sonrientes ante la cinta roja. Detrás se adivinaba, ligeramente desenfocada, la cara de la mujer del chaleco.
+
+Cuando se publicó la noticia, varias personas discutieron en los comentarios sobre qué partido merecía el mérito. Nadie preguntó por ella.
+
+Supongo que así empieza una democracia madura: cada cual elige cuidadosamente qué parte de una fotografía le interesa mirar.
+
+# El cuarto botón
+
+En San Bartolomé de la Cuesta, el edificio de Atención al Ciudadano tenía cuatro plantas, tres salidas de emergencia y un ascensor que parecía haber sido educado por un comité. Subía con prudencia, bajaba con reservas y, al llegar al tercer piso, consideraba que ya había contribuido suficientemente al interés general.
+
+El día de su inauguración lo probaron el alcalde, dos concejales, una fotógrafa y el responsable de la empresa instaladora. Todo fue admirable. La cabina ascendió hasta la tercera, abrió las puertas y permitió que la comitiva posara junto a una placa de metacrilato. La fotógrafa pidió que sonrieran. Habían conseguido llegar muy alto.
+
+A la mañana siguiente, doña Encarna salió de su casa a las ocho y media para presentar una solicitud en la cuarta planta. Tenía setenta y ocho años, una carpeta con cintas elásticas y la costumbre de prepararlo todo la noche anterior, incluido el paraguas cuando el hombre del tiempo decía que iba a hacer sol. Pulsó el cuatro. El ascensor llegó al tres.
+
+—Es que todavía están terminando unos ajustes —le explicó un vigilante, que llevaba dos semanas escuchando aquella frase sin saber qué se ajustaba.
+
+Encarna miró la escalera. Después miró su carpeta. Finalmente bajó a la planta baja para pedir la hoja de reclamaciones. Se la entregaron muy amablemente y le indicaron que podía presentarla en Registro General, situado en la cuarta.
+
+En la oficina de Obras, Remigio Tardón atendió el aviso con una seriedad ejemplar. Había sido ferretero antes de ser concejal y mantenía cierta fe en la posibilidad de que todas las dificultades se arreglaran con una llave Allen. Llamó al jefe de mantenimiento. Este le dijo que era un parámetro de control, que vendría un técnico a modificarlo y que tardaría veinte minutos. Remigio pidió un escrito.
+
+El escrito entró el martes en Urbanismo. El miércoles pasó a Patrimonio, porque el ascensor estaba dentro de un inmueble municipal. El jueves se devolvió a Urbanismo al entender Patrimonio que la competencia sobre movimientos verticales correspondía a otra unidad. El viernes hubo reunión de coordinación. Se acordó estudiar si era preciso un informe de accesibilidad.
+
+Ese mismo viernes, Encarna volvió con la solicitud. Había pedido ayuda a su nieto. Subió los tres primeros pisos en ascensor y el cuarto andando, lo que vino a demostrar que el sistema de acceso universal había alcanzado el setenta y cinco por ciento de sus objetivos.
+
+El semanario El Pregonero de la Vega publicó una fotografía de la cabina con el título «El cuatro no aparece». La noticia tuvo repercusión. Candelaria Peñarrocha presentó una moción urgente denunciando las promesas incumplidas de los Azules. Evaristo respondió que la licitación procedía de la etapa de los Coloraos. Candelaria exhibió un documento donde se comprobaba que el contrato lo había firmado Remigio. Remigio explicó que una firma es una cosa y un ascensor otra.
+
+Me gusta esta distinción. En un país mejor organizado, se enseñaría en las escuelas. También habría que explicar que la responsabilidad puede dividirse en tantos departamentos como haga falta, pero siempre llega entera a la persona que necesita utilizar una escalera.
+
+El ascensor era la parte visible de un mecanismo mucho más ambicioso: el del ciudadano que solicita algo sencillo y acaba convirtiéndose en experto involuntario de la organización administrativa.
+
+El turno de Pepe era el B-147. Llegó a las ocho y doce, sacó un número y comprobó con cierta satisfacción que en la pantalla figuraba el B-19. Le agradaba que las administraciones funcionaran con orden. No tan deprisa como a él le habría convenido, desde luego, pero al menos había un sistema. Los sistemas son tranquilizadores hasta que uno descubre que también sirven para organizar el tiempo que pierde.
+
+A las nueve había veintisiete personas. Un señor con muletas trataba de averiguar si la ventanilla tres atendía cuestiones de movilidad o cuestiones tributarias. Una mujer mantenía una conversación por teléfono en la que explicaba a su jefe que estaba «en una cosa de papeles». Era una expresión preciosa. Nos permite perder una mañana de vida sin especificar quién nos la ha robado.
+
+Pepe llevaba una autorización firmada por su hermana. Debía recoger un certificado de empadronamiento. Su hermana vivía a dos calles, pero había tenido que viajar a otra provincia para acompañar a su marido a una consulta. Pepe había aceptado el encargo porque estaba seguro de que sería rápido. Esta seguridad, como tantas otras, procedía exclusivamente de no haberlo intentado nunca.
+
+Cuando llamaron al B-147 eran las once y treinta y seis. La funcionaria se llamaba Elena. Tenía gafas de montura roja, cuatro bolígrafos alineados y una planta pequeña que llevaba años sobreviviendo con el agua que sobraba de su botella. Elena examinó los papeles.
+
+—Le falta una copia del documento de su hermana.
+
+—Aquí tiene una foto en el móvil.
+
+—Necesito una copia.
+
+—La imprimo aquí si quiere.
+
+—Aquí no tenemos impresora para público.
+
+Pepe miró detrás de ella. Había dos impresoras grandes y una pequeña. Apreciaba las distinciones administrativas casi tanto como las geográficas. Su hermana había nacido en Villacobos, pero ahora él estaba convencido de que pertenecían a países diferentes.
+
+—Pues dígame dónde puedo imprimirla.
+
+—En la papelería de la plaza.
+
+—¿La que cerró el año pasado?
+
+Elena cerró un segundo los ojos. No por paciencia, sino para recordar dónde habían puesto el nuevo terminal de autoservicio. Se lo señaló al fondo del pasillo. Pepe pulsó «obtener copia», introdujo el documento y consiguió que la máquina fotografiara su dedo índice. La segunda vez logró una imagen de la autorización. La tercera, por fin, salió el documento de identidad de su hermana. Volvió a la ventanilla.
+
+—Tiene que coger otro número.
+
+Fue entonces cuando Pepe comprendió de verdad el sentimiento de quienes toman una institución con intención de cambiar el curso de la historia. Hasta aquel momento lo había considerado una actividad bastante cansada.
+
+La escena habría acabado con una bronca, pero Encarna estaba sentada junto a la puerta y lo llamó por su nombre. Pepe la conocía del barrio. Ella había ido a preguntar por una ayuda para adaptar el baño de su casa.
+
+—No le grites a Elena —le dijo—. Es la única que intenta ayudarte.
+
+—¡Si me acaba de mandar al final de la cola!
+
+—Porque aquí no puede saltarse la cola. Eso lo aprobó una comisión para evitar que los conocidos de los concejales se colaran.
+
+Elena los miró desde su puesto. Encarna llevaba razón. Antes de la reforma, cada funcionario tenía que decidir qué casos consideraba urgentes. Los conocidos de un concejal siempre parecían tener una urgencia perfectamente documentada. La nueva regla evitaba favoritismos, pero se había diseñado sin una casilla para la gente que regresaba con un papel recién impreso.
+
+Pepe volvió a sentarse. Acababa de descubrir que un procedimiento podía ser simultáneamente razonable e idiota. No le gustó nada. Era una complicación innecesaria para un hombre acostumbrado a distribuir el mundo entre quienes tenían razón —él— y quienes la obstaculizaban.
+
+Encarna le ofreció una pastilla de menta. Él la aceptó sin reconocer que llevaba veinte minutos sin hablar.
+
+A las doce y cuarto, una mujer empezó a llorar junto al terminal. Había perdido el plazo de una solicitud porque su madre había estado ingresada. Elena pidió permiso a su responsable para atenderla sin cita. El responsable lo consultó con otro responsable. Pepe observó cómo tres personas bienintencionadas intentaban averiguar si podían ayudar a una cuarta.
+
+Por primera vez aquella mañana dejó de mirar la pantalla de turnos. Se levantó, ofreció a la mujer su silla y la acompañó hasta el mostrador. No sabía arreglar nada de aquello. Era irritante sentirse inútil sin poder culpar a otro de la sensación.
+
+Cuando finalmente le entregaron el certificado, el B-148 apareció en pantalla. Pepe salió a la plaza y encontró a Remigio inaugurando el nuevo Portal de Atención Ciudadana. Habían contratado una pantalla gigante para demostrar que los trámites podían realizarse sin desplazamientos.
+
+—Magnífico invento —murmuró Pepe—. Si funciona, hoy es mi último día de excursión.
+
+No funcionaba. En la pantalla aparecía un mensaje de mantenimiento programado. Pepe, sin embargo, ya no tuvo ganas de reírse de Elena.
+
+Encarna no llevaba número aquella mañana. Solo quería subir. No sé si eso la convertía en una usuaria especialmente exigente o en una peligrosa revolucionaria.
+
+El debate llenó la tertulia de Radio Puchero. Un antiguo edil sostuvo que se trataba de un sabotaje. Un ingeniero jubilado dijo que quizás bastase con revisar el cuadro de control. Nadie volvió a llamarlo. Los sabotajes permiten una tertulia de dos horas; los cuadros de control, con suerte, ocho minutos.
+
+Un lunes apareció un cartel a la entrada: «ACCESO A PLANTA 4 MEDIANTE ESCALERA B». Debajo, alguien añadió a bolígrafo: «Gracias por la paciencia». La letra se parecía sospechosamente a la de Encarna.
+
+Cuando llegó la campaña electoral, el ascensor apareció en los programas de los dos partidos. Los Azules prometieron completar las mejoras de movilidad. Los Coloraos anunciaron una auditoría independiente. El técnico de la empresa instaladora, que seguía esperando autorización para tocar el cuadro, recibió un correo donde se le solicitaba presupuestar la inspección previa al estudio de la intervención.
+
+Respondió con una cifra. Era inferior al precio del atril utilizado durante la inauguración.
+
+Meses después, Encarna recibió una carta del Ayuntamiento. La informaban de que su reclamación había sido estimada favorablemente. Se había constatado la necesidad de garantizar el acceso a la cuarta planta y se habían iniciado las actuaciones oportunas.
+
+Encarna guardó la carta en la misma carpeta de cintas elásticas. Llegó otra vez al edificio, pulsó el cuatro y el ascensor volvió a pararse en el tres.
+
+Esta vez no discutió con nadie. Subió despacio la escalera y, al pasar frente al cartel, corrigió la última línea con el bolígrafo.
+
+# Palabras que hacen horas extra
+
+Hay palabras que trabajan tanto que deberían cotizar a la Seguridad Social. Regeneración es una de ellas. Lleva décadas acudiendo a ruedas de prensa, desayunos informativos, juntas extraordinarias y congresos de partido, y jamás he oído que le concedieran vacaciones. La acompaña transparencia, una palabra hermosa cuya principal virtud consiste en poder pronunciarse delante de un cristal tintado.
+
+Por alguna razón, el lenguaje administrativo moderno tiene la costumbre de describir una mejora cuando todavía no ha ocurrido y una dificultad cuando ya es demasiado tarde para evitarla. Lo que antes era una cola de dos horas ahora es un «proceso de atención presencial con demanda elevada». El autobús que no pasa ha dejado de ser un autobús que no pasa: se encuentra «sujeto a una modificación operativa de frecuencias». La diferencia puede parecer lingüística, pero para quien llega tarde al trabajo es de una sensibilidad extraordinaria.
+
+No propongo volver a los tiempos en que los avisos oficiales se redactaban a pluma y las calamidades se anunciaban con un pregonero. El progreso es magnífico. Sobre todo cuando se puede medir. Lo curioso es que algunos indicadores han mejorado hasta el punto de abandonar cualquier relación sentimental con la realidad.
+
+En la oficina de empleo de Valdeperdices se instaló un sistema de cita previa que redujo el tiempo de espera registrado a cero. Fue un éxito estadístico. Los vecinos seguían llegando a las siete de la mañana, seguían esperando en la acera y seguían discutiendo sobre el orden de llegada, pero técnicamente nadie esperaba dentro del edificio. En una rueda de prensa, el director habló de una «reducción radical de las demoras». Lo más radical era el frío de febrero.
+
+Las palabras más eficaces son las que consiguen sustituir a los hechos. He visto discusiones sobre si una noticia estaba bien comunicada antes de que nadie averiguara si había ocurrido. En ciertas ruedas de prensa esa inversión del orden natural se celebra como una habilidad.
+
+La rueda de prensa empezó puntual. Una rareza que podría haber dado pie a la felicitación de los periodistas si no hubiera coincidido con la ausencia de casi todos ellos. La convocatoria se había enviado a las ocho y once, el acto comenzaba a las ocho y veinte y el gabinete esperaba que los asistentes hubieran desayunado leyendo el correo. Era una idea optimista sobre la profesión y una idea muy práctica sobre la transparencia.
+
+Amalia Robledal entró sonriendo, acompañada por un portavoz que llevaba una carpeta de color crema y la expresión de quien ha dormido cuatro horas para conseguir que los demás noten ocho. La presidenta regional había venido a inaugurar un pequeño centro de diagnóstico. En la puerta esperaban enfermeras, pacientes y un celador que sujetaba un cable eléctrico en alto para evitar que lo pisara la comitiva.
+
+—Hoy hablamos de sanidad —anunció el portavoz.
+
+A los cuatro minutos, la presidenta estaba hablando de la oposición nacional. A los ocho, de los medios que difundían bulos. A los once, de la libertad. Nunca he entendido por qué la libertad tiene tanta facilidad para presentarse en una rueda de prensa y tantas dificultades para encontrar una silla en la sala de espera. Quizá se trate de un problema de aforo.
+
+Lucía levantó la mano. Había madrugado para acudir desde San Bartolomé. Quería saber cuándo abriría el servicio de radiología. Lo habían anunciado en el folleto, pero la puerta permanecía cerrada. Amalia respondió que la región estaba realizando un esfuerzo sin precedentes y que determinadas críticas obedecían al deseo de erosionar un proyecto de éxito.
+
+—Le preguntaba por la fecha —insistió Lucía.
+
+—Y yo le estoy dando el contexto.
+
+En determinados cargos, el contexto no acompaña a la respuesta; la sustituye. Es un recurso excelente. Si me preguntan cuándo devolveré un libro prestado, puedo hablar de la evolución histórica del conocimiento, del precio del papel y de cómo algunas personas prefieren criticar antes que leer. Con suficiente convicción, quizá mi amigo acabe pidiéndome disculpas.
+
+La presidenta señaló al siguiente periodista. Era de una cadena nacional y quería preguntar por una investigación judicial que no guardaba relación con el centro. El portavoz intentó detenerlo. Amalia no quiso. Respondió durante seis minutos con una seguridad que no siempre se corresponde con la necesidad de ofrecer datos. La sala se animó. El celador siguió sosteniendo el cable.
+
+Al terminar, una enfermera se acercó a Lucía. Se llamaba Nerea y llevaba tres semanas organizando turnos con una hoja de cálculo porque el nuevo sistema todavía no había llegado. No quería salir en una fotografía. Quería que los pacientes no tuvieran que desplazarse cuarenta kilómetros para una prueba.
+
+—¿Tú crees que lo pondrán? —preguntó.
+
+Lucía miró la puerta cerrada.
+
+—Supongo que sí.
+
+—Yo también. Lo que no sé es cuándo.
+
+La noticia de aquella mañana llevó por titular una frase sobre la oposición. El centro sanitario apareció en el segundo párrafo. La empresa de comunicación de la administración envió a los medios diecisiete fotografías. En ninguna se veía la puerta de radiología.
+
+Esa noche Amalia protagonizó cuatro tertulias sin estar presente en ninguna. Había pronunciado una frase contundente y el país disponía de su combustible habitual. Nerea terminó a las diez, revisó el cuadrante de turnos y puso en el tablón una nota manuscrita: «Pacientes derivados a Villacobos hasta nuevo aviso».
+
+La escribió en letras grandes porque sabía que los vecinos mayores no siempre veían bien. No se imaginaba que aquello era una forma de comunicación política bastante más útil que toda la rueda de prensa.
+
+La rueda de prensa terminó, pero las palabras continuaron haciendo horas extra. Cobran poco, cumplen mucho y jamás reclaman vacaciones.
+
+Un ciudadano observador podría preguntar por qué alguien habría de querer engañarse con esos números. La pregunta presupone que el número se inventó para engañar a alguien. No siempre hace falta tanto trabajo. A veces basta con pedir a una organización que mejore un indicador y olvidar que las personas tienen una capacidad formidable para descubrir qué se está contando. A la tercera reunión todos saben qué hay que anotar, dónde hay que poner el cero y qué casilla no debe abrirse jamás delante de un visitante.
+
+No es un fenómeno que termine en el Boletín Oficial. También existe en los colegios, las empresas y nuestras propias casas. He conocido a personas que se sienten deportistas porque el reloj les felicita al llegar a diez mil pasos, aunque siete mil se hayan dado buscando el mando de la televisión. La diferencia es que esa cifra solo engaña a quien la lleva en la muñeca. Un indicador público puede afectar a quien ni siquiera tiene reloj.
+
+De modo que, si escuchan que un trámite ha sido «optimizado», no den por hecho que ha empeorado. Sería injusto. Puede que efectivamente sea mejor. Pero quizá convenga hacer una pregunta bastante menos moderna: ¿cuántas veces hay que venir ahora?
+
+El periodismo tampoco está libre de esta industria del adjetivo. Un titular puede llegar a ser una obra literaria notable, en especial si se desprende durante el proceso de aquello que pretendía contar.
+
+Aurelio Perdigón había aprendido a titular bajo una regla sencilla: quien compra el periódico debe entender la noticia antes de llegar a la barra del bar. La regla no implicaba que la entendiera correctamente. Para eso estaban las páginas interiores, que se vendían junto con la portada aunque no siempre se utilizaban.
+
+El jueves recibió un vídeo de diecinueve segundos. Se veía a Federico Balmaseda, presidente de una región ficticia de la costa, entrando en un restaurante de manteles blancos. Sonreía, saludaba y se sentaba. El mensaje que acompañaba la imagen afirmaba que se había grabado durante una emergencia. La fecha parecía coincidir. La hora no estaba clara. El archivo había sido reenviado tantas veces que había perdido hasta la vergüenza de tener origen.
+
+—Hay que publicarlo —dijo la redactora de redes.
+
+—Hay que comprobarlo —respondió Lucía.
+
+—Si esperamos, lo saca otro.
+
+Este argumento ha sido responsable de algunos de los mayores avances y algunos de los peores atropellos del periodismo moderno. También lo utilizan los compradores cuando deciden pagar por una vivienda antes de descubrir que la terraza da a una fábrica de piensos.
+
+En los últimos años, la gestión de una catástrofe real había sido objeto de un escrutinio judicial, político y periodístico intenso. Tenía sentido: las alertas, las decisiones y la coordinación pueden determinar consecuencias terribles. También tenía sentido exigir cronologías verificadas. Lo que no tenía sentido era tratar una secuencia de vídeo como si contuviera por sí sola todas las explicaciones posibles sobre un día.
+
+Aurelio pidió la grabación completa. Nadie la tenía. Llamó al restaurante. No confirmaron la hora. Contactó con una persona que aparecía en la entrada. Le dijo que estaba dispuesta a hablar, pero no por teléfono. Lucía fue a verla a una localidad a cuarenta kilómetros y regresó al anochecer con tres datos, dos dudas y una transcripción de doce páginas.
+
+El director examinó el material.
+
+—¿Y el titular?
+
+—Todavía no lo sé.
+
+Aurelio suspiró. El periodismo de verdad tiene ese defecto comercial: mejora el conocimiento y empeora la comodidad del editor.
+
+Publicaron una pieza provisional sobre la circulación del vídeo, con la información que habían podido verificar y lo que seguía pendiente. Nadie los felicitó por la prudencia. En redes, la derecha más militante los acusó de insinuar sin pruebas. La izquierda más militante los acusó de encubrir con cautelas. Y un señor que había confundido la región del vídeo con otra les escribió un comentario de ciento ochenta palabras sobre las élites. La democracia digital ofrece participación sin necesidad de que el participante esté en el sitio correcto.
+
+Tres días después, el restaurante facilitó la hora de una reserva y el material pudo contextualizarse mejor. La noticia resultó más precisa y también menos espectacular. El periódico publicó la actualización. La vieron una décima parte de quienes habían compartido la versión inicial.
+
+—¿Por qué? —preguntó la redactora.
+
+—Porque comprobar no produce la misma adrenalina que acusar —dijo Lucía.
+
+Aurelio se quitó las gafas.
+
+—Y porque nuestro titular de ayer era más bonito.
+
+Reconocerlo le costó. No porque fuera un hombre deshonesto, sino porque había pasado treinta años trabajando para que el lector eligiera precisamente su portada entre muchas. El verbo elegir empieza por los periódicos y termina por los gobiernos; en ambos casos conviene recordar que una cosa es atraer la atención y otra merecerla.
+
+Una tarde, mientras limpiaba la mesa de la redacción, Lucía encontró la fotografía de una niña que había sido rescatada en aquella emergencia. Estaba recortada de un periódico y guardada en un sobre. Aurelio explicó que la había apartado para evitar utilizarla como reclamo en una portada.
+
+—¿Y por qué la guardaste?
+
+—Para acordarme.
+
+No dijo de qué. Lucía tampoco preguntó.
+
+A los seis meses, el vídeo regresó a internet con otra música, un nuevo texto y las mismas imágenes. Se compartió como si acabara de grabarse. Esta vez alguien escribió debajo: «La verdad que no quieren que veas».
+
+Aurelio cerró la ventana del ordenador.
+
+—La verdad debe de tener una agenda complicadísima —dijo—. Nunca llega cuando la invitan y siempre aparece cuando ya hemos cenado.
+
+La terminología administrativa al menos suele necesitar un sello. A la retórica mediática le basta con un botón de publicar.
+
+Yo desconfío especialmente de las grandes reformas que empiezan por cambiarle el nombre a la ventanilla. Es posible que el nombre fuese lo único que funcionaba.
+
+## PARTE II  ·  LOS ENEMIGOS NECESARIOS
+
+# La mesa siete
+
+El restaurante de Manolo Bernal llevaba treinta y siete años abierto y veintidós sin cambiar la carta. Había sobrevivido a tres crisis económicas, una reforma de la calle del Molino que dejó el comedor sin luz natural durante ocho meses y una inspección sanitaria cuyo principal hallazgo fue que la máquina de café tenía más años que el inspector.
+
+Manolo era discreto. Había aprendido que la hostelería consistía en escuchar cosas que uno no debía haber oído y fingir después que no las había escuchado. Por su comedor habían pasado matrimonios infieles, empresarios insolventes, inspectores de Hacienda y algún consejero comarcal. Estos últimos, según el día, reunían varias de las características anteriores.
+
+Los martes, a las dos y media, reservaban la mesa siete.
+
+El primero en llegar era un hombre de gafas finas, chaqueta azul y la costumbre de colocar el teléfono sobre una servilleta. Pedía agua con gas y revisaba sus mensajes sin tocarlos demasiado. El segundo aparecía diez o quince minutos después, despeinado por algún compromiso urgente y con un cansancio profesional que no se le quitaba ni en vacaciones. Comían bien. Hablaban bajo. Nunca discutían.
+
+Un martes de enero, el hombre de las gafas pidió el menú de temporada. El otro eligió merluza. Manolo se acercó para preguntar si querían vino. Dijeron que no. Estaban esperando a un tercero.
+
+El tercero llegó con una carpeta color vino y un paraguas con mango de pato, a pesar de que llevaba cuatro días sin llover. Nadie le preguntó su nombre. Manolo lo había visto alguna vez en el ayuntamiento, en los pasillos donde se espera para hablar con alguien que nunca termina de estar disponible. Pidieron café antes de terminar el pescado. La conversación duró cuarenta minutos. Después el tercero salió sin postre.
+
+Al recoger la mesa, Manolo encontró un papel doblado. Lo abrió solo lo necesario para comprobar que no era una factura pendiente. Había tres números escritos y una anotación: «jueves, 8:15». Lo dejó en una bandeja detrás de la barra.
+
+El jueves, Radio Puchero emitió una discusión particularmente violenta entre el portavoz de los Azules y una representante de los Coloraos. Los dos se acusaron de maniobras, opacidad y falta de respeto institucional. El locutor tuvo que cortarles el micrófono para dar paso a un anuncio de jamones. Manolo, que escuchaba la radio mientras limpiaba la cafetera, reconoció las voces. Habían comido juntos el martes.
+
+No le pareció necesariamente extraño. A Manolo le gustaba pensar que la gente podía discutir delante de un micrófono y seguir siendo civilizada a la hora de comer. De hecho, siempre había considerado que la civilización empezaba cuando una persona era capaz de no pedirle a otra que se callara antes de terminar el segundo plato.
+
+La semana siguiente volvieron a la mesa siete. Esta vez hablaron de fútbol. Uno tenía un hijo en cadetes, el otro había perdido dos entradas para la final provincial y los dos estaban de acuerdo en que el árbitro era una calamidad. Manolo les sirvió flan casero. El hombre de las gafas dejó una propina generosa.
+
+Manolo tenía una teoría sobre los restaurantes con reservados: cuanto más discreta se anunciaba una cena, más personas terminaban enterándose de ella. Había hombres capaces de asistir a una comida de trabajo con la expresión de quien está pasando una revisión médica.
+
+En el restaurante La Cúpula había una mesa redonda reservada todos los jueves. No era la más cara ni la mejor iluminada, pero tenía una ventaja apreciable: desde allí se veía la puerta antes de que los recién llegados pudieran distinguir los rostros de quienes esperaban. En ciertas profesiones, la distribución de las mesas forma parte de la prevención de riesgos laborales.
+
+Una noche de noviembre se sentaron Lorenzo Ábrego, Faustino Jadraque y un empresario llamado Jacinto Urrutia. Lorenzo había hecho la reserva a nombre de Villaverde, apellido de su suegro. El suegro no estaba invitado y, según parecía, tampoco informado de que había adquirido la costumbre de cenar allí. Iván, el camarero, decidió no preguntar. Había trabajado suficientes jueves para comprender que la discreción empieza por la carta y termina por la forma de apuntar el nombre en una reserva.
+
+El camarero se llamaba Iván. Había estudiado Relaciones Laborales y ahora dirigía el tráfico de bandejas con una competencia que habría hecho llorar a varios ministros de Fomento. Tomó nota: dos merluzas, una carne poco hecha y tres botellas de agua. El vino no apareció en la cuenta hasta después, cuando alguien lo pagó por separado.
+
+—Llevo mucho tiempo sin verte —dijo Lorenzo.
+
+—Nos vimos el martes.
+
+—Quiero decir tranquilamente.
+
+Jacinto Urrutia tenía una virtud muy apreciada en las ciudades grandes: sabía hablar de negocios sin nombrar ninguno. Si había una adjudicación, la llamaba «oportunidad». Si había un obstáculo, «incidencia». Si había una persona a la que convenía llamar, «interlocutor». Había perfeccionado el idioma hasta dejarlo sin huellas dactilares.
+
+A los postres apareció una fotógrafa. Había sido contratada por el restaurante para promocionar su nueva carta. Pidió permiso para retratar a los comensales. Lorenzo se apartó de la mesa con una elegancia que no sabía que poseía. Jacinto miró el teléfono y fingió recibir una llamada. El tercer hombre, Faustino Jadraque, siguió comiendo el flan. Llevaba tantos años en fotografías comprometedoras y no comprometedoras que había perdido la capacidad de distinguirlas. Además, no pensaba dejar el flan.
+
+El problema de las fotografías es que se niegan a adquirir contexto por sí mismas. Una imagen puede demostrar que dos personas se sentaron a cenar. No demuestra qué hablaron, qué pactaron o si una de ellas estuvo toda la velada explicando que su cuñado tenía un problema de espalda. La ausencia de contexto, sin embargo, resulta extraordinariamente rentable para quienes tienen la tarea de comentarla.
+
+Al día siguiente, una cuenta de redes sociales publicó un recorte de la fotografía. Bajo el título «LA REUNIÓN QUE LO EXPLICA TODO» se veían dos copas, una corbata y la mano de Faustino sujetando una cucharilla. Aquello no explicaba absolutamente nada. Fue compartido catorce mil veces.
+
+La fotografía completa llegó al *Pregonero de la Vega*. Lucía descubrió que se trataba de una promoción del restaurante y que al fondo aparecía una pareja celebrando un aniversario. También descubrió que Lorenzo y Jacinto habían coincidido en una adjudicación pública años atrás. Las dos cosas podían ser ciertas. El mundo, por desgracia, no está obligado a elegir la hipótesis que mejor encaja en un titular.
+
+—¿Publicamos? —preguntó Aurelio.
+
+—Que cenaron, sí. Que acordaron algo, no sabemos.
+
+—Menudo asco de profesión —suspiró él—. A veces el rigor quita mucha emoción.
+
+En La Cúpula, Iván encontró a la semana siguiente un sobre pequeño entre los cojines del reservado. Contenía una tarjeta de agradecimiento y una entrada para un partido de fútbol. No llevaba dinero ni instrucciones. Era una cortesía, y por eso mismo resultaba difícil decidir si había que devolverla, guardarla o pasarla al cajón donde se acumulaban las cosas que nadie quería explicar.
+
+Iván llamó a Jacinto. No contestó. Llamó a Lorenzo. Una secretaria dijo que no conocía a ningún Iván. Llamó a Faustino y Faustino apareció a los doce minutos.
+
+—¿Te has dejado algo? —preguntó Iván.
+
+—A veces.
+
+Iván le dio el sobre.
+
+—La próxima vez, si quieren que una cena sea privada, no vengan a un restaurante que vive de hacer fotografías.
+
+Faustino rio, tomó la tarjeta y dejó veinte euros de propina.
+
+Iván devolvió los veinte euros. No quería que una cena ajena terminara convirtiéndose en el argumento de su propia vida. Era una precaución modesta, de esas que nunca llegan al BOE y ayudan, pese a todo, a que las cosas sigan funcionando.
+
+La mesa siete, entretanto, continuaba esperando a sus parroquianos. Manolo había aprendido a no confundir una cuenta pagada con una conversación terminada.
+
+Durante febrero, la ciudad se llenó de carteles sobre el futuro del mercado de abastos. Cerrado desde hacía diecisiete años, el edificio era un magnífico ejemplo de la capacidad municipal para conservar ruinas en pleno centro urbano. Los Azules prometían un proyecto integral; los Coloraos exigían que se retomase la solución prevista ocho años atrás. Los periódicos publicaron imágenes de ventanas rotas, comerciantes jubilados y un gato que, a falta de otra autoridad, había terminado administrando el patio interior.
+
+Una tarde, cuando el camarero llevó los cafés, encontró al hombre de las gafas examinando una fotografía aérea del mercado. Su compañero señalaba con el dedo una esquina. Manolo reconoció la plaza, porque allí había aprendido a montar en bicicleta. No escuchó lo que decían. Al regresar a la barra vio que el paraguas con mango de pato había vuelto a aparecer, apoyado junto a una silla vacía.
+
+El jueves siguiente hubo rueda de prensa. Los Coloraos reclamaron un informe independiente. Los Azules anunciaron que no admitirían imposiciones. Radio Puchero organizó un especial con cuatro tertulianos, un profesor de instituto y un señor que se presentó como «experto en revitalización urbana» porque había comprado un local en la calle Mayor.
+
+En junio el Ayuntamiento felicitó a los vecinos por su participación.
+
+El último martes antes de las fiestas patronales, los dos comensales llegaron por separado y se sentaron en silencio. Manolo dejó sobre la mesa el vino de la casa, aunque no lo habían pedido. Uno de ellos sacó un documento. El otro lo leyó despacio, hizo un comentario y comenzó a reír. Primero uno, luego los dos. Reían con esa complicidad que solo aparece cuando nadie más entiende el chiste. Manolo, desde la barra, sintió por primera vez una curiosidad que casi le hizo olvidar los pedidos de la mesa cuatro.
+
+La siguiente semana el periódico publicó una gran fotografía del pleno municipal. Los protagonistas aparecían de pie, cada uno a un lado del salón, discutiendo con los brazos levantados. El titular hablaba de «ruptura definitiva» y «posturas irreconciliables». En la esquina inferior, entre dos columnas, aparecía la noticia de que el mercado seguiría cerrado hasta nuevo aviso.
+
+También había clientes que conseguían convertir la sobremesa en un ministerio completo. No llevaban papeles, pero salían dejando detrás porcentajes, hipótesis y la sensación de que al café se le había aplicado una deducción.
+
+Don Cristóbal Montaraz tenía la costumbre de calcular porcentajes en las servilletas. Era una forma de entretenimiento que había perfeccionado durante sus años al frente de Hacienda. Donde otras personas veían una sobremesa, él encontraba un ejercicio de optimización fiscal. No era un mal hábito. Lo inquietante era la facilidad con que conseguía que los comensales terminaran pagando la cuenta con entusiasmo.
+
+Había vuelto a San Bartolomé para inaugurar unas jornadas sobre seguridad jurídica. La sala estaba llena de asesores, empresarios, abogados y un estudiante de Economía que había confundido el acto con un curso gratuito de Excel. El ponente habló de la importancia de unas reglas claras, predecibles y aplicables a todos. La frase recibió un aplauso prolongado. La claridad, como la honradez, es una virtud que provoca entusiasmo hasta que exige renunciar a una ventaja propia.
+
+En la pausa se acercó a saludarlo don Leandro Cifuentes, empresario del sector sanitario. Había prosperado vendiendo material de laboratorio, gestionando locales y considerando que el principal talento de un emprendedor consistía en descubrir lo mucho que el legislador todavía podía aprender de él.
+
+—Los impuestos están acabando con el país —dijo Leandro.
+
+Montaraz lo observó con esa paciencia que solo puede permitirse alguien a quien ya no le descuentan el sueldo por escuchar tonterías.
+
+—El país lleva siglos sobreviviendo a esa frase.
+
+—Pero hay sectores estratégicos que merecen especial atención.
+
+—Todos los sectores se consideran estratégicos cuando han de pagar algo.
+
+La respuesta era admirable. Con una sola frase, el antiguo ministro había demostrado que podía burlarse de un empresario sin abandonar la posibilidad de que aquel empresario lo invitara a comer.
+
+Manolo, encargado del catering, escuchó una parte de la conversación mientras colocaba bandejas de croquetas. Llevaba tiempo preguntándose por qué sus tres trabajadores pagaban sus impuestos mediante retenciones automáticas mientras algunos negocios encontraban siempre una casilla nueva donde discutir los suyos. No era economista. Sabía hacer cuentas. La diferencia fundamental es que sus cuentas tenían que cuadrar cada viernes.
+
+Durante el coloquio, alguien preguntó por los despachos especializados que asesoran a grandes compañías y por el riesgo de que antiguos responsables públicos utilicen sus contactos. Montaraz respondió que el conocimiento profesional no se evapora por el simple hecho de dejar un cargo. Era un argumento razonable. También lo es que una persona que conoce dónde están las llaves de una casa no debería entrar de noche para comprobar si el antiguo dueño ha cambiado la cerradura.
+
+La actualidad española ofrecía motivos para tomarse en serio aquella diferencia. En 2026 continuaba una investigación judicial sobre el llamado caso Montoro, relativa a sospechas de influencias en decisiones fiscales a favor de clientes de un despacho. Se trataba de una investigación, no de una condena, y confundir ambos estados habría sido una manera particularmente pobre de hablar de seguridad jurídica. Pero esa cautela no impedía plantearse una pregunta legítima: ¿cómo se distingue una aportación técnica de una influencia indebida cuando se reúnen quienes escriben la norma y quienes pueden beneficiarse de ella?
+
+En nuestro salón ficticio, una joven asesora pidió el micrófono. Se llamaba Berta y trabajaba en una cooperativa agrícola. Quería saber por qué un formulario para pedir una ayuda de catorce mil euros exigía certificados de tres administraciones que, a su vez, podían consultarse entre sí.
+
+—El objetivo es garantizar la trazabilidad —respondió un ponente.
+
+—La trazabilidad de las aceitunas la tenemos resuelta —dijo Berta—. Lo que no sabemos es si la ayuda llegará antes de la cosecha siguiente.
+
+Hubo risas, pero no demasiadas. El público estaba compuesto principalmente por personas cuya actividad profesional consistía en vender soluciones a la complejidad administrativa. La simplicidad les producía una inquietud parecida a la que siente un fontanero cuando el lavabo deja de gotear por sí solo.
+
+Al terminar, Montaraz se acercó a Berta.
+
+—Ha hecho usted una buena pregunta.
+
+—No parece que haya servido.
+
+—Las buenas preguntas nunca garantizan buenas respuestas.
+
+—Entonces están igual que las malas.
+
+Montaraz sonrió. Le dio una tarjeta y le recomendó que escribiera a un departamento competente. Berta la examinó: en la tarjeta no figuraba correo electrónico, solo el nombre del despacho y un teléfono fijo.
+
+Esa tarde en La Parada, Pepe comentó que el sistema fiscal era un atraco. Manolo le recordó que llevaba cuatro años pidiendo que el Ayuntamiento subvencionara la terraza del bar porque la consideraba de interés turístico.
+
+—Eso es diferente —replicó Pepe—. Es invertir en el pueblo.
+
+—¿Con mis impuestos?
+
+—Hombre, tampoco te pongas así.
+
+La fiscalidad tiene una cualidad profundamente democrática: casi todos los ciudadanos aspiramos a que financie aquello que nos beneficia y resulte especialmente prudente con lo demás.
+
+Al guardar el mantel, Manolo encontró una servilleta con tres porcentajes y la frase «se podría estudiar». No supo quién la había escrito. La conservó para limpiarse las manos al día siguiente. Era el primer uso perfectamente claro que veía para aquel documento.
+
+En la carta de La Parada no figuraba la optimización fiscal. Por suerte, Manolo seguía cobrando lo mismo por los cafés de los que mandaban y por los de quienes se limitaban a escucharlos.
+
+Manolo dobló el periódico. Cogió la libreta de reservas y miró el martes siguiente.
+
+El restaurante tenía dos puertas, una a la calle del Molino y otra a una pequeña terraza. Aquellos hombres siempre entraban por una y salían por la otra. Manolo nunca había considerado necesario preguntarles por qué. El comedor era suyo, pero el negocio consistía en servir comida, no explicaciones.
+
+Esa mañana se sorprendió pensando que, en política, quizá ocurriera exactamente lo contrario.
+
+# Sobre la virtud de no estorbar
+
+Hay una cualidad que debería figurar en cualquier currículum si el aspirante pretende desarrollar una carrera política sin sobresaltos: saber distinguir entre una idea brillante y una idea que conviene tener. No son exactamente lo mismo.
+
+Una idea brillante resuelve un problema. Una idea conveniente permite que quien lo presenta siga hablando de él al día siguiente. La primera puede necesitar cálculos, una conversación incómoda o admitir que se ha hecho algo mal. La segunda suele caber en un eslogan, especialmente si tiene cinco palabras y comienza por ahora sí.
+
+Tampoco quiero idealizar al que presume de decir siempre la verdad. Conozco a personas cuya franqueza es sencillamente una forma de mala educación que no ha encontrado editor. La independencia de criterio no consiste en llevar la contraria por deporte, igual que la capacidad de gestión no consiste en instalar una hoja de cálculo y llamarla transformación digital. Hay expertos en hacer las cosas difíciles y gente realmente competente que no necesita mencionarlo dos veces por frase.
+
+Pero en las organizaciones, especialmente cuando la promoción depende de pocas manos, aparece una pregunta que rara vez figura en los concursos: ¿este candidato va a hacerme quedar bien? En principio no es una pregunta ilegítima. A todos nos gustaría trabajar con personas que no nos dejaran en ridículo durante una presentación. Lo complicado viene cuando «hacerme quedar bien» deja de significar «contribuir a un buen resultado» y pasa a significar «no contradecirme aunque esté conduciendo el autobús hacia el embalse».
+
+Durante una emergencia, esta virtud adquiere un matiz bastante menos divertido. La diferencia entre intervenir y estorbar deja de medirse en prestigio administrativo y empieza a medirse en cajas que llegan a un hospital.
+
+El departamento de compras del hospital comarcal recibió una llamada a las ocho y cuarenta de la mañana. Necesitaban mascarillas, guantes y material de protección. Era un martes de aquellos en los que el teléfono parecía una alarma de incendios y todos los pasillos olían a desinfectante.
+
+La responsable de suministros se llamaba Alicia Vela. Tenía una manera de trabajar que desesperaba a los vendedores: preguntaba por los plazos de entrega, pedía certificados y comprobaba que el número de unidades coincidiera con el de la factura. También llevaba una foto de su hijo sobre la mesa. Cuando la escuela cerró, la cambió por un dibujo del niño en el que aparecía ella con una capa roja y una caja enorme a los pies. Sobre la caja había escrito «MASGARILLAS». Alicia nunca se lo corrigió.
+
+En plena emergencia, un hombre telefoneó para ofrecer una solución inmediata. Se presentó como Jacinto Urrutia, asesor de una empresa con contactos internacionales. Tenía acceso a proveedores, transportistas, almacenes, aeropuertos y, según afirmó, a una persona que conocía al director general. Hablaba con una seguridad tan extraordinaria que Alicia tuvo que revisar dos veces el correo para comprobar que no le había enviado ningún documento.
+
+—Lo importante ahora es salvar vidas —dijo Jacinto.
+
+Era cierto. Y por eso mismo convenía saber si las cajas llegarían. Las urgencias auténticas no convierten las preguntas razonables en una falta de humanidad. Al contrario: cuando la respuesta afecta a alguien que no puede respirar, la prisa por hacer bien las cosas debería ser todavía mayor.
+
+Jacinto pidió que lo pusieran en contacto con un antiguo asesor del ministerio, Faustino Jadraque. Resultó que ya se conocían. En el mundo de los intermediarios hay encuentros casuales que requieren menos azar que una cita de dentista.
+
+—Faustino es de confianza —dijo Jacinto.
+
+—¿De quién? —preguntó Alicia.
+
+Hubo una pausa. No era habitual que se discutiera la procedencia de la confianza. La confianza circula por los despachos como la calefacción central: unos la pagan y otros se benefician de que esté encendida.
+
+Alicia apuntó lo que faltaba: oferta formal, ficha técnica, documentación de la empresa, destino exacto del suministro y plazo de entrega verificable. Jacinto se mostró ofendido. Dijo que parecía que alguien estaba poniendo trabas a la protección de los sanitarios.
+
+Nerea, que trabajaba entonces en urgencias, encontró a Alicia en el pasillo. Le habían dicho que una compra podía resolverse en horas.
+
+—¿Es verdad que hay material?
+
+—Hay llamadas —respondió Alicia.
+
+—Ojalá alguna venga con cajas.
+
+Esa frase debería figurar en la puerta de muchos ministerios. Por desgracia, no tiene siglas y difícilmente ganaría un concurso de comunicación institucional.
+
+Años después, la prensa española contó con sentencias, investigaciones y documentación suficiente para distinguir diferentes episodios de contratación de mascarillas. En noviembre de 2026, el Tribunal Supremo estaba ejecutando una sentencia condenatoria relativa a comisiones en contratos públicos de la pandemia; otras ramificaciones seguían su propio recorrido judicial. La distinción importa. También importaba durante la emergencia, aunque entonces nadie hubiera tenido tiempo de explicarla ante un micrófono.
+
+No sé si las personas que se aprovechan de una crisis son especialmente inteligentes. Quizá simplemente entienden antes que otras dónde se aflojan los controles. Lo que sí sé es que existen muchas clases de cobardía, y que utilizar el miedo de una enfermera como argumento comercial merece un lugar destacado en una clasificación bastante desagradable.
+
+En el hospital de nuestra historia, la oferta de Jacinto nunca llegó a convertirse en pedido. Había alternativas más caras por unidad, pero comprobables. Alicia defendió su decisión en tres reuniones. En la última le preguntaron si comprendía la importancia de la agilidad administrativa.
+
+—Sí. Por eso llevo dos días intentando saber cuántas mascarillas hay en ese avión.
+
+—No podemos obsesionarnos con las cifras.
+
+Aquella tarde entró un camión con material de otro proveedor. Nerea ayudó a descargar las cajas porque faltaban manos. Alicia salió con la lista impresa y tachó cada lote conforme lo contaban. Hacía frío. Nadie sacó una fotografía.
+
+Seis años después, el hijo de Alicia encontró en un cajón el dibujo de «MASGARILLAS» y le preguntó si de verdad había llevado capa al trabajo. Ella se echó a reír.
+
+—No, cariño. Llevaba un abrigo muy feo.
+
+—Pues en el dibujo pareces una superheroína.
+
+Alicia lo guardó otra vez. Era un título que no necesitaba justificar con una rueda de prensa.
+
+La virtud de no estorbar no garantiza una carrera brillante. A menudo ni siquiera aparece en el organigrama. Algunas personas la practican sin saber que han renunciado a una estupenda rueda de prensa.
+
+El mecanismo resulta más discreto de lo que parece. No suele haber una reunión secreta con ocho personas vestidas de negro decidiendo eliminar a los empleados honrados. La vida real tiene poco presupuesto para las conspiraciones y demasiado para las reuniones de seguimiento. Alguien evita asignar un asunto importante a quien hace preguntas. Otro prefiere a quien responde rápido. Una tercera persona anuncia que hay que recuperar la confianza. Al cabo de un año, una oficina ya sabe qué se puede decir en voz alta, qué conviene escribir en un correo y qué solo debe pensarse durante el camino a casa.
+
+La diferencia entre obedecer una instrucción legítima y obedecer cualquier instrucción es suficientemente grande como para que mereciera su propio pasillo en los edificios oficiales. No lo tiene. Los edificios oficiales reservan los pasillos para fotografías de personas que han ocupado despachos. Es más práctico: no hace falta actualizarlas cuando cambian los criterios.
+
+La historia tiene una pega para los aficionados a los diagnósticos rápidos. La persona que se marcha no siempre era competente y honrada. Puede ser brillante y difícil, honesta y torpe, o simplemente haber encontrado un trabajo mejor. Del mismo modo, alguien puede ascender por lealtad sin haber hecho nada indebido. Quien quiera convertir cualquier promoción en un crimen perfecto necesitará más pruebas que un rumor junto a la máquina de café.
+
+Pepe no pedía favores. Los devolvía por adelantado. Era una distinción moral que había elaborado durante años de gestiones con la administración, y estaba tan orgulloso de ella que se la explicaba a cualquiera dispuesto a pagarle un café. Conocía al bedel del colegio, al encargado de licencias y a un primo tercero de alguien que trabajaba en la diputación. No eran influencias. Eran relaciones humanas, expresión que sirve para ennoblecer cualquier procedimiento hasta que alguien pregunta por qué la ventanilla no se abre para todos a la misma hora.
+
+El jueves llegó al Ayuntamiento con un sobre de documentos y una caja de pastas. Manolo le había pedido ayuda con los trámites para reorganizar la terraza de La Parada, que estaba a su nombre. Pepe aceptó encantado: una gestión ajena siempre se parecía bastante a una oportunidad propia para demostrar que tenía contactos. La solicitud llevaba seis meses presentada y faltaba subsanar el plano. El técnico municipal, un hombre llamado Salvador que no tenía tiempo para hacer discursos, le explicó que debían dejar un paso accesible.
+
+—Yo lo dejo —prometió Pepe—. Lo que haga falta.
+
+—Un metro ochenta libre.
+
+—Eso es muchísimo paso.
+
+—Para una silla de ruedas no siempre.
+
+—Ya, pero ¿cuántas pasan?
+
+Salvador dejó de mirar el ordenador. Es difícil encontrar un momento más preciso para el nacimiento de una excepción que el instante en que alguien empieza a contar a las personas que van a necesitar un derecho.
+
+Pepe se marchó contrariado. A media mañana telefoneó a Remigio Tardón, cuyo hermano conocía al proveedor de cerveza del bar. Le explicó que el Ayuntamiento estaba asfixiando a los pequeños negocios. Tardón prometió interesarse por el expediente. No prometió cambiar la norma, que habría sido demasiado evidente. Se limitó a pedir que alguien lo mirara con cariño, una forma administrativa de la ternura que no figura en el diccionario.
+
+El viernes, Pepe recibió una llamada de Salvador.
+
+—He revisado el plano de Manolo.
+
+—¿Ves como se podía?
+
+—Se puede si retiras una mesa y desplazas la jardinera.
+
+—Entonces nos quedamos con menos terraza.
+
+—Te quedas con la que cabe.
+
+Pepe colgó convencido de que las instituciones perseguían a los emprendedores. Lo contó en la barra mientras Encarna tomaba una infusión. Ella lo escuchó sin interrumpirlo. Cuando terminó, le preguntó por dónde tendría que pasar con el carrito de la compra.
+
+—Por aquí, mujer.
+
+Pepe hizo un gesto amplio, como si el aire se organizara alrededor de su buena voluntad.
+
+Encarna colocó el carrito entre dos mesas. Se quedó atascado. Un cliente tuvo que levantarse. Otro derramó medio vermú. La prueba de accesibilidad generó un pequeño tumulto que Pepe atribuyó al tamaño excesivo del carrito. Encarna se marchó con la satisfacción de quien no necesita ganar una discusión porque ha conseguido atascarla físicamente.
+
+El lunes, Pepe pidió disculpas a Salvador. No fue una disculpa muy elaborada: incluyó tres explicaciones, dos referencias a la crisis de la hostelería y una invitación a tomar algo. Salvador aceptó la rectificación del plano y rechazó el café. No por desconfianza, sino porque trabajaba a nueve kilómetros y tenía que salir para recoger a su hija.
+
+El martes, Pepe anunció en el bar que había conseguido la licencia gracias a sus contactos.
+
+Me parece importante no idealizar a Salvador. Una tarde lo vi discutir con una cajera porque un descuento no se aplicaba a un producto de oferta, aunque el cartel lo explicaba con bastante claridad. Cada uno administra su justicia en la escala que tiene a mano. Pero al menos en su despacho no confundió las gestiones que Pepe reclamaba con lo que la norma permitía autorizar.
+
+Aquel verano, la terraza se llenó. Manolo contrató a un camarero y ganó algo más de dinero. Pepe, que no había puesto ni una silla, explicó a cuantos quisieron escucharlo que quitar una mesa no había arruinado el negocio y que, por tanto, su mediación había sido un éxito. El banco de la esquina, que había quedado libre, empezó a usarlo un hombre con muletas que esperaba a su hija a la salida del centro de salud.
+
+Pepe lo saludaba todos los días. Nunca reparó en que aquel banco estaba allí, entre otras razones, porque Salvador se había negado a hacerle un favor.
+
+Eso no convierte a los honrados en seres superiores. Los convierte, con suerte, en personas que reconocen el precio de sus decisiones antes de pasárselo al vecino.
+
+Lo curioso es lo mucho que nos cuesta aceptar esa complejidad cuando estamos enfadados. El rival siempre asciende por enchufe. El nuestro, por méritos. Cuando el nuestro pierde el cargo, descubrimos una campaña de persecución. Cuando lo pierde el contrario, vuelve a funcionar el Estado de derecho.
+
+Mi conclusión provisional es que las instituciones no tienen conciencia moral. Tienen personas, normas, incentivos, expedientes y cafeterías. De todo ello, la cafetería suele ser lo único que admite que un café malo sigue siendo malo aunque se haya servido conforme al procedimiento.
+
+# La tercera planta
+
+Mercedes Valdivielso llevaba veintiséis años trabajando en la Consejería cuando instalaron un cartel nuevo en la entrada. Se había pedido que dijera «Dirección General de Servicios Públicos», pero la empresa suministradora entregó «Dirección de Servicios Generales». Como todavía no existía una unidad competente para devolver un cartel institucional que no coincidía con la nueva estructura, el rótulo permaneció allí siete meses. Mercedes lo miraba cada mañana sin hacer comentarios.
+
+Tenía una mesa junto a la ventana del tercer piso y un armario que cerraba con un truco aprendido del funcionario que había ocupado aquel despacho antes que ella. Había sobrevivido a cinco directores generales y a once reorganizaciones. Cada una había prometido simplificar las tareas; todas habían conseguido, al menos, renovar el membrete.
+
+El nuevo director se llamaba Alberto Cifuentes. Tenía cuarenta y dos años, sonrisa de concurso de fin de curso y la agradable costumbre de llamar «equipo» a cualquiera cuya nómina no tuviera que autorizar personalmente. Su primer lunes visitó los departamentos acompañado por una asesora que tomaba notas de las notas que otros habían tomado para preparar la visita.
+
+Alberto soltó una carcajada breve. Le gustaba la gente con sentido del humor, al menos antes de que empezara a responderle.
+
+La semana siguiente le llevó una carpeta de color marfil. Contenía la autorización para poner en marcha un servicio comarcal de atención a mayores. Mercedes lo leyó con paciencia. El proyecto era razonable, la necesidad estaba documentada y los plazos resultaban apretados. Solo faltaba un informe de intervención que determinara cómo iba a financiarse su segundo año.
+
+—Podemos adelantar el trabajo. No el documento que falta.
+
+Alberto se inclinó sobre la mesa con gesto conciliador. Explicó que la Administración necesitaba gente comprometida, que los ciudadanos no entendían de papeles y que él había venido a desbloquear procedimientos. Mercedes estuvo de acuerdo con las tres afirmaciones. Después colocó la carpeta a su izquierda, donde dejaba los asuntos incompletos.
+
+Aquel jueves se celebró una reunión de coordinación. Mercedes no fue convocada. No pensó demasiado en ello: tenía cuatro expedientes pendientes y el cumpleaños de su madre el sábado. El lunes siguiente recibió un correo felicitándola por su trayectoria y anunciando una reorganización de funciones. A partir del día primero sería coordinadora de proyectos transversales en la sexta planta.
+
+El despacho nuevo era más grande y luminoso. Desde él se veía el aparcamiento de la Consejería y una porción de cielo que cambiaba de color entre las cuatro y las cinco. Le instalaron una impresora de alta capacidad, dos estanterías nuevas y una silla cuya regulación era tan completa que necesitó pedir ayuda para sentarse a la altura habitual.
+
+—¿Qué proyectos voy a coordinar? —preguntó a Recursos Humanos.
+
+Mercedes decidió aprovechar la tranquilidad. Revisó el procedimiento de autorizaciones, identificó once trámites duplicados y redactó una propuesta de simplificación de diecinueve páginas, con ejemplos, costes y un calendario. La envió a Alberto. Recibió una respuesta automática agradeciendo su aportación. Dos semanas después le comunicaron que podía presentarla en una mesa de trabajo. La mesa de trabajo se aplazó porque su presidente tenía otra mesa de trabajo.
+
+Mercedes no era la única que había aprendido a distinguir un expediente de un problema. Al otro lado de la plaza, en el juzgado, Elena conocía una diferencia todavía más incómoda: los papeles pueden estar perfectamente ordenados y seguir llegando tarde a la vida de quien los necesita.
+
+Elena no había perdido nunca un expediente. Había perdido paraguas, cuatro teléfonos, una llave del coche y, durante una tarde entera, la fe en los arquitectos, pero jamás un expediente. Su despacho en la tercera planta del juzgado comarcal tenía una ventana estrecha y un archivador con una etiqueta que decía «PENDIENTE DE ESCANEAR». Era una etiqueta heredada de dos reformas informáticas y de un funcionario que ya se había jubilado.
+
+A las ocho y cuarto entró un hombre con una carpeta de color verde y preguntó por el asunto 436/2021. Elena buscó en el ordenador, después en el registro físico y finalmente en una hoja de incidencias. La causa estaba paralizada a la espera de una diligencia. Aquella diligencia dependía de un oficio. El oficio había sido remitido a un organismo que cambió de sede seis meses después y devolvió la carta sin abrir.
+
+—¿Cuándo se resolverá? —preguntó el hombre.
+
+—No puedo decírselo.
+
+—Llevo cinco años.
+
+—Lo sé.
+
+A veces la única respuesta honrada parece una ofensa. Elena tuvo que resistir la tentación de añadir que cinco años, en aquel edificio, todavía podían considerarse una forma de puntualidad relativa. Eso habría sido cruel y, peor aún, estadísticamente defendible.
+
+En las pantallas de los bares se discutía sobre jueces valientes, jueces cobardes, jueces progresistas, jueces conservadores y jueces de los que se esperaba que fueran todo eso dependiendo del día. La justicia, que tiene que ser independiente para poder equivocarse y corregirse conforme a reglas, había terminado convertida en una plantilla de fútbol donde cada auto se comentaba por el color de la camiseta. No ayuda que el órgano de gobierno de los jueces necesitara más de cinco años para renovarse y que los dos grandes partidos tuvieran que concluir su acuerdo en Bruselas en 2024. La escena tenía algo de excursión escolar: los adultos habían necesitado que los llevaran de la mano a terminar la tarea.
+
+Eso no convierte en parcial a cada magistrado que firma una resolución discutida. Pero tampoco obliga a los ciudadanos a fingir que las instituciones se han comportado siempre con ejemplaridad. Entre sospechar de todo y no poder sospechar de nada hay un espacio amplio, incómodo y poco rentable para un programa de televisión.
+
+Teodoro Armenteros presidía un juzgado de una ciudad cercana. Tenía fama de minucioso. La fama, como el vino, puede mejorar o estropearse con los años. Se había convertido en personaje de tertulia después de ordenar varias diligencias en una investigación política muy seguida. Unos lo celebraban como ejemplo de coraje. Otros interpretaban cada decisión como una prueba de hostilidad. Su nombre aparecía en pancartas que probablemente él no había visto y en editoriales que de ninguna manera había pedido.
+
+Armenteros no entra aquí para que yo le atribuya una intención secreta. La intención secreta es una mercancía abundante en televisión y bastante difícil de probar en un juzgado. Entra porque su auxiliar, una mujer llamada Sara, recibió una mañana tres llamadas en las que personas desconocidas intentaron explicarle lo que el juez realmente quería hacer. Ninguna había leído las actuaciones completas. Sara agradeció sus opiniones y les recordó que estaban llamando al servicio de información procesal, no a una vidente.
+
+Elena, en cambio, tenía delante a alguien que no saldría jamás en los informativos. Se llamaba Andrés Cazorla. Había pasado cinco años esperando que una denuncia sobre una pequeña estafa terminara en algo. La cantidad era modesta para las grandes tertulias: nueve mil ochocientos euros. Para él representaba los ahorros con los que pensaba cambiar la calefacción de su madre.
+
+—No quiero que condenen a nadie porque sí —dijo—. Solo quiero saber si alguien va a mirarlo.
+
+Elena imprimió el estado del procedimiento. Se equivocó al seleccionar la bandeja y el papel salió por la impresora de la sala de al lado. La oyó arrancar, maldecir y volver a imprimir. Había días en que la justicia parecía una gran maquinaria que consumía energía para trasladar información a una habitación contigua.
+
+Cuando volvió, Andrés había sacado una libreta. Anotó el nombre del organismo pendiente, la fecha del último oficio y el teléfono del juzgado competente. Preguntó si podía solicitar impulso procesal a través de su abogado. Elena le explicó el cauce formal. No prometió resultados.
+
+—Gracias —dijo él.
+
+La gratitud le dolió más que la queja. Había dedicado quince minutos a explicarle algo que el sistema debería haberle permitido consultar sin peregrinar entre edificios. Sabía que los funcionarios no eran culpables de todos los retrasos. También sabía que esa verdad resultaba de un consuelo muy limitado para quien aguardaba.
+
+A la hora del almuerzo, un compañero le mostró un titular que decía «NUEVO TERREMOTO JUDICIAL». Elena observó la fotografía de un señor con toga, el tamaño de las letras y la firma del comentarista.
+
+—¿Qué ha pasado?
+
+—Han pedido una documentación.
+
+—¿A quién?
+
+—Todavía no se sabe.
+
+Se comió el bocadillo de pie junto a la ventana. Abajo, Andrés cruzaba la plaza con su carpeta verde. La llevó pegada al cuerpo para que no se mojara: había empezado a llover.
+
+Elena pensó que un país debería tener espacio suficiente para dos cosas a la vez: investigar con todas las garantías al más poderoso y no olvidarse de quien llevaba cinco años esperando que le contestaran una carta.
+
+Volvió al despacho y anotó el número 436/2021 en un pósit. Luego lo pegó en la pantalla, debajo de otro que decía: «COMPRAR TÓNER». Ambas tareas quedaron, de momento, pendientes.
+
+La ventana del despacho de Mercedes daba a un patio sin encanto. Desde allí el tiempo también pasaba, aunque los informes preferían llamarlo período de tramitación.
+
+En diciembre, Mercedes pidió una excedencia. La empresa pequeña de asesoramiento donde trabajaba su hermana buscaba a alguien que supiera ordenar expedientes. Le ofrecían menos sueldo, pero también la posibilidad de que un documento entregado un martes tuviera alguna consecuencia antes del siguiente cambio de estación.
+
+Organizaron una despedida sencilla en la cafetería. Alberto pronunció unas palabras sobre el talento, la experiencia y la transformación cultural. Mercedes agradeció el gesto. No era una mujer rencorosa; además, el pastel de limón estaba bastante bueno.
+
+Su sustituto se llamó Julián Pardo. Había trabajado cuatro años como asesor de una fundación y dos como coordinador de gabinete. Era amable, respondía rápido a los correos y tenía un talento indiscutible para hacer que una reunión terminara cinco minutos antes sin que nadie hubiera cambiado de opinión.
+
+En febrero, el servicio comarcal de mayores abrió sus puertas. El acto fue emotivo. Una mujer de ochenta y seis años inauguró la sala de lectura y explicó que llevaba siete meses esperando la cita para solicitar el servicio. Alberto dijo que la administración era ahora más cercana.
+
+En marzo llegó un requerimiento de la Intervención General. Solicitaba el informe financiero del segundo ejercicio y varias justificaciones que debían figurar en el expediente original. Julián buscó la documentación en el servidor, en el archivo y en una caja de cartón que alguien había etiquetado como «varios». Finalmente pidió ayuda a Alberto.
+
+Julián la localizó al mediodía. Mercedes escuchó la consulta mientras revisaba un pedido de folios.
+
+—El informe no estaba —respondió—. Lo anoté en la hoja de control.
+
+Mercedes Valdivielso llevaba tres años intentando que los departamentos municipales dejaran de entregar documentación sin anotar quién la recibía. No pedía un sistema revolucionario: una fecha, un nombre y, en casos especialmente delicados, una firma que se pareciera a la persona que la estampaba. La propuesta había sido considerada excesivamente burocrática por una comisión cuya última reunión terminó con la aprobación de un formulario de diecisiete campos.
+
+Una mañana encontró en su bandeja un sobre sin remitente. Dentro había tres facturas de una misma empresa de mantenimiento. Las fechas eran distintas, las cantidades parecidas y el concepto incluía en los tres casos un error ortográfico: «reparación del alunbrado perimetral». Mercedes revisó el sistema de contratación y comprobó que los encargos habían pasado por unidades administrativas diferentes.
+
+No concluía nada. Podía ser una coincidencia, un proveedor descuidado o una decisión perfectamente justificable. Por eso abrió un registro de comprobación en lugar de llamar a Lucía, que siempre esperaba que la llamaran. Hay personas capaces de convertir tres facturas en un thriller antes de sumar las cifras. Mercedes prefería un bolígrafo negro.
+
+Remigio Tardón entró en el despacho un martes a media mañana. Venía preocupado por el alumbrado del aparcamiento y un grupo de vecinos que había organizado una recogida de firmas. Mercedes le pidió los justificantes de recepción de las tres actuaciones.
+
+—Eso es cosa de los técnicos —respondió Remigio.
+
+—Yo soy una técnica.
+
+—De otros técnicos.
+
+La cadena de responsabilidades continuó dos minutos. Cuando llegó al final, Remigio descubrió que no había nadie más a quien señalar sin salir del edificio. Era una situación poco frecuente y francamente incómoda.
+
+En la vida pública hay una diferencia entre investigar un indicio y declarar culpable a su protagonista. La diferencia tiene poca utilidad publicitaria, pero es imprescindible. Por la misma razón, la persona que alerta de una anomalía no merece ser tratada como una enemiga de la institución, del partido, de la estabilidad política o de la patria. En ocasiones solo quiere saber por qué hay tres facturas y una farola que sigue sin encenderse.
+
+Mercedes envió un requerimiento formal. Le devolvieron dos certificados. Faltaba uno. Lo solicitó otra vez. Un jefe de servicio le pidió que moderase el tono porque había llamadas de una empresa interesada. Revisó el correo y no encontró ninguna palabra de tono moderado o elevado. Solo fechas, documentos y preguntas.
+
+Mientras esperaba, acompañó a su madre al médico. Se sentaron en una sala de espera donde un televisor explicaba una polémica nacional sobre presuntas irregularidades y responsabilidades políticas. Su madre escuchó unos minutos, miró a Mercedes y le preguntó:
+
+—¿Tú también estás metida en estas cosas?
+
+—Estoy intentando que arreglen una farola.
+
+—Entonces sí.
+
+La madre había trabajado treinta y ocho años en una fábrica de componentes eléctricos. Había visto a directivos marcharse con indemnizaciones y a encargados cargar con decisiones que no tomaron. No sabía gran cosa de contratación pública. Reconocía, eso sí, el sonido de una persona que quiere quitarse un problema de encima.
+
+El certificado pendiente llegó a finales de mes. Reveló que uno de los trabajos se había ejecutado correctamente y que otro se había facturado después de una reparación diferente. El tercero no permitía acreditar el servicio. Mercedes lo dejó señalado y lo remitió a Intervención.
+
+Aurelio se enteró de la revisión cuando una fuente le habló de «una auditoría que podría hacer temblar al Ayuntamiento». Llamó a Mercedes. Ella explicó que todavía no había ninguna conclusión sobre irregularidades y que debía respetarse el procedimiento.
+
+—Necesito un titular —dijo él.
+
+—Necesita datos —respondió Mercedes.
+
+En el *Pregonero* aquella semana salió una fotografía del aparcamiento, con una farola apagada en mitad de la noche. El pie de foto decía: «La comprobación continúa». No batieron récords de visitas. Tampoco perjudicaron injustamente a nadie.
+
+Al cabo de dos meses la Intervención detectó un abono indebido y reclamó su reintegro. La empresa lo devolvió y alegó un error de facturación. La cuestión quedó documentada. No hubo una gran trama oculta ni un sobre de dinero atravesando los pasillos. Hubo una factura mal pagada, una corrección y un funcionario que había pedido comprobarla.
+
+Mercedes archivó el expediente. En la esquina inferior pegó una nota: «Farola revisada. Funciona».
+
+Al anochecer pasó por el aparcamiento. Se detuvo un momento bajo la luz nueva. Era amarillenta y bastante fea. Le pareció preciosa.
+
+Mercedes nunca tuvo que esconder un sobre. No era una hazaña épica. Le bastaba con escribir el nombre de quien lo entregaba y exigir que alguien se hiciera responsable del recibo.
+
+—En la carpeta marfil. Tercera planta. Armario de la derecha. El cierre va un poco duro, hay que levantar la puerta.
+
+Julián encontró la carpeta. Dentro, junto a la autorización inicial, había una nota manuscrita: «Pendiente informe de financiación segundo año. No remitir hasta completar».
+
+Alberto convocó una reunión extraordinaria sobre la conservación del conocimiento institucional. Se acordó contratar una consultora para elaborar un protocolo de transferencia de información entre departamentos. El contrato se adjudicó tres meses después. La consultora presentó un documento de ciento doce páginas que incluía, entre otras recomendaciones, la necesidad de garantizar la trazabilidad de los documentos.
+
+La Consejería organizó una jornada para presentar sus conclusiones.
+
+# El informe que nadie pidió
+
+De las cosas que pueden perderse en un ayuntamiento, la más peligrosa no es un expediente. Es la curiosidad por saber qué contiene. El expediente perdido al menos provoca una búsqueda. El que descansa obedientemente en un archivador puede permanecer veinte años sin causar la menor inquietud, incluso cuando la primera página anuncia que una pared va a caerse sobre alguien.
+
+En El Pregonero de la Vega recibieron un sobre sin remitente un jueves a las ocho y diecisiete. Dentro había fotocopias de diecisiete hojas, un plano del mercado y una nota escrita con letras mayúsculas: «MIREN LA FECHA». Aurelio Perdigón, director y redactor jefe porque su presupuesto no alcanzaba para diferenciar ambos cargos, se quedó mirando la portada. Al otro lado de la redacción, la becaria corregía un artículo sobre el concurso de roscones gigantes.
+
+Aurelio había trabajado suficiente tiempo en prensa local para saber que «puede que algo» era el diagnóstico correcto de la mayoría de los grandes escándalos antes de descubrir que eran una disputa vecinal por el turno de limpieza. También sabía que la primera persona en enviarle un correo indignado no solía ser la más informada.
+
+Llamó a un arquitecto municipal que conocía desde el instituto. Le hizo tres preguntas sobre el plano. El arquitecto respondió las dos primeras y pidió ver la tercera en persona. Quedaron al día siguiente en el bar La Parada.
+
+Antes de acudir, Aurelio repasó las fechas. El informe se había redactado ocho años atrás. Uno de sus anexos advertía de que la intervención provisional en la cubierta del mercado no podía considerarse solución permanente. Otro contenía una propuesta de trabajos urgentes y un presupuesto de obra. En la última hoja aparecía la firma de recepción de un departamento que había cambiado tres veces de nombre.
+
+Aurelio quiso publicar en ese mismo instante. Tenía una foto magnífica del mercado: una ventana rota, dos palomas y un cartel de «Próxima reapertura» descolorido por el sol. Imaginó el titular. Después decidió esperar al arquitecto. La paciencia es una cualidad poco vistosa en los periodistas y por eso conviene mencionarla cuando aparece.
+
+Al mediodía siguiente, el arquitecto examinó los papeles sin tocar el café.
+
+—Entonces tendrás que preguntarles qué hicieron después.
+
+El sobre que alguien deja bajo una puerta puede ser más peligroso que el informe completo que descansa en una estantería. Sobre todo cuando quien lo recibe tiene que decidir si contiene una denuncia, una venganza o una invitación a quedar como un idiota.
+
+El segundo sobre llegó seis días después del primero. Lo recibió Lucía Perdigón en la redacción del *Pregonero de la Vega*, junto con tres facturas de una empresa llamada Servicios Integrales La Vega y una nota escrita en papel cuadriculado: «Pregunten por la obra de octubre». El primer sobre había sido más divertido. Contenía una tarjeta de felicitación navideña de Remigio Tardón con la fotografía de su perro. Lucía empezó a sospechar que el remitente quería, además de informar, comprobar si en el periódico abrían toda la correspondencia.
+
+Mercedes Valdivielso, la administrativa que llevaba semanas revisando justificantes de gasto, reconoció el error ortográfico de las facturas. «Alunbrado» aparecía también en los tres documentos archivados por el Ayuntamiento. Era una pista, no una prueba. La diferencia es sencilla de explicar y, sin embargo, todo un sector de la industria informativa ha levantado edificios sobre su confusión.
+
+—¿Podemos publicar? —preguntó Aurelio.
+
+—Podemos preguntar —respondió Lucía.
+
+La llamada a Servicios Integrales La Vega la atendió una mujer que dijo ocuparse únicamente de la contabilidad. La empresa tenía domicilio en un polígono, dos camionetas y siete trabajadores. Había hecho reparaciones reales: Mercedes encontró fotografías del antes y el después. Las luces funcionaban. La carretera estaba más segura. Alguien había firmado la recepción con fecha correcta. Todo muy decepcionante para quienes habían imaginado una trama internacional de luminarias.
+
+Pero había un detalle: dos presupuestos de diferentes adjudicatarias utilizaban la misma dirección de correo y cometían la misma falta en la palabra «perimetral». La sospecha dejó de ser una novela policial cuando Mercedes descubrió que ambos proveedores compartían un gestor externo. Podía ser una explicación inocente. También un problema de competencia que merecía comprobación. La administración existe, entre otras cosas, para que las decisiones no dependan de la intuición de un funcionario ni del entusiasmo de un periodista con una exclusiva.
+
+El concejal Tardón se presentó sin cita en la redacción. Traía una carpeta con documentación, dos fotografías y una indignación perfectamente planchada.
+
+—Estáis preparando una campaña contra mí.
+
+—Estamos preparando preguntas.
+
+—¡Precisamente!
+
+Aurelio, que llevaba tres décadas entrevistando a personas convencidas de que una pregunta era una forma refinada de violencia, le ofreció café. Remigio lo rechazó por principios. Después aceptó una botella de agua porque la indignación reseca mucho.
+
+—¿Conoce a Jacinto Urrutia? —preguntó Lucía.
+
+El concejal tardó un segundo en responder. Fue un segundo tan interesante que Aurelio tuvo la tentación de escribirlo en la libreta.
+
+—Lo he visto en actos públicos.
+
+—¿En cuáles?
+
+—En los habituales.
+
+Los habituales son una categoría de actos muy interesante. No vienen nunca enumerados, pero aparecen en las agendas de las personas importantes justo cuando un periodista decide comprobarlas.
+
+Remigio se marchó dejando sobre la mesa los certificados de recepción. Durante dos horas, Lucía y Aurelio los revisaron. Una factura tenía el IVA bien calculado; otra, una referencia antigua; la tercera describía una intervención de mantenimiento que coincidía con un temporal de viento. Llamaron a los trabajadores. Uno recordaba haber cambiado una farola. Otro, un cuadro eléctrico. Ninguno conocía a Jacinto.
+
+El periódico no publicó una acusación. Publicó que el Ayuntamiento revisaba las adjudicaciones de mantenimiento tras detectar coincidencias entre ofertas y pidió acceso al expediente. La historia ocupó media página, sin fotografías de esposados ni música siniestra. Fue recibida con profunda decepción por una cuenta anónima que llevaba dos días anunciando «la caída definitiva del régimen de San Bartolomé».
+
+La respuesta oficial llegó el martes. No había conclusiones. El Ayuntamiento había iniciado una comprobación. Remigio defendió la transparencia del procedimiento y la oposición pidió que se investigara sin prejuzgar resultados, después de haber prejuzgado el resultado en tres ruedas de prensa.
+
+Encarna leyó la noticia en el bar.
+
+—¿Y las luces funcionan? —preguntó.
+
+—Sí —dijo Manolo.
+
+—Pues menos mal.
+
+Pepe la miró con preocupación. Consideraba que aquella era una respuesta peligrosamente ingenua.
+
+—Mujer, hay que saber quién gana con todo esto.
+
+—La gente que pasa por la carretera de noche, supongo.
+
+No era una conclusión completa. Tampoco pretendía serlo. A veces investigar bien significa resistir la tentación de tener un culpable antes de terminar de comprobar las facturas. Otras significa no dejar el asunto porque las bombillas encienden.
+
+Al cerrar, Lucía recibió un tercer sobre. Contenía un folio con la palabra «SEGUIRÁ» escrita en rotulador rojo. Lo guardó en la misma carpeta que los otros, junto a los documentos pendientes de verificar.
+
+La cuenta anónima publicó que la periodista estaba ocultando pruebas. Resultó ser la noticia más compartida de aquella semana.
+
+Aurelio sabía que un papel sin comprobar no era todavía una noticia. Lo malo era que los rumores no tenían la misma paciencia.
+
+Aurelio comenzó a llamar. El primer exconcejal le explicó que el informe era responsabilidad de un área distinta. El segundo dijo que habían existido actuaciones de emergencia, pero no recordaba exactamente cuáles. El tercero aseguró que el mercado se había cerrado por prudencia. Un asesor comentó que el documento no incluía una solución integral. Todos parecían recordar una parte distinta del mismo edificio.
+
+El lunes la becaria encontró en el archivo del periódico una noticia de cinco años atrás. Una fotografía mostraba al entonces alcalde visitando las obras de consolidación. El pie de foto decía que se trataba de una intervención provisional mientras se preparaba un proyecto definitivo. La foto estaba tomada desde un ángulo que ocultaba la zona de cubierta descrita en el informe.
+
+Aurelio lo miró. Luego volvió al plano y pasó un dedo sobre el dibujo de la cubierta.
+
+El martes hubo pleno extraordinario. El portavoz de los Azules afirmó que durante la etapa de los Coloraos se habían ignorado advertencias técnicas. Candelaria respondió que los Azules habían tenido tiempo suficiente para intervenir. El debate fue tan agrio que Radio Puchero emitió una edición especial. Un concejal golpeó la mesa con el bolígrafo y tuvo que pedir otro porque se rompió el capuchón.
+
+Aurelio asistió con una carpeta llena de notas. No publicó al terminar. Fue hasta el mercado, rodeó el edificio y se detuvo frente a una puerta metálica oxidada. Allí vio una pegatina con el nombre de la empresa que había realizado la intervención provisional. Era la misma que aparecía en una factura guardada entre sus documentos. La obra se había hecho. En parte.
+
+Volvió a la redacción y cambió el titular que llevaba dos días preparando. Quedó menos espectacular, pero bastante más incómodo: «El mercado recibió obras provisionales hace cinco años; el proyecto definitivo sigue sin aprobarse».
+
+La noticia tuvo menos clics de los esperados. En los comentarios, unos acusaron al periódico de proteger a los Coloraos y otros de hacerle el juego a los Azules. Una persona escribió que Aurelio era un vendido. Otra añadió que era un ignorante. La becaria colocó las dos opiniones impresas junto a la máquina de café.
+
+Sole tenía un archivo de portadas debajo del mostrador del quiosco. No era una colección elegante. Había periódicos sujetos con gomas de pollo asado, recortes pegados a cartones de cajas de galletas y una carpeta de plástico donde guardaba los titulares que habían envejecido particularmente mal. La carpeta se llamaba «VEREMOS».
+
+La gente le preguntaba por qué conservaba papel en una época en que podía encontrarlo todo en internet. Sole contestaba que en internet se podía encontrar todo salvo, a veces, lo que alguien había decidido corregir después de que medio país lo hubiera leído.
+
+Un viernes de octubre apareció por el quiosco Bruno Alcántara, antiguo dirigente de un partido de izquierda que había ocupado más portadas que algunas guerras. Había cambiado de gafas, de barrio y de rutina. No de manera de hablar. Se detuvo ante la pila de periódicos y buscó uno en concreto.
+
+—No ha salido —dijo Sole.
+
+—¿Quién?
+
+—La noticia que viene a buscar.
+
+Bruno se echó a reír. Había soportado insultos, investigaciones, tertulias, caricaturas y numerosas personas que lo consideraban responsable de que lloviera durante los puentes. Sole le pareció más difícil de discutir porque no quería discutir nada.
+
+—¿Tan evidente soy?
+
+—Lleva usted tres mañanas pasando a la misma hora.
+
+El periódico de aquel día no dedicaba apenas espacio al archivo de una causa que había empezado años atrás. En la realidad española, la Audiencia Provincial de Madrid confirmó en octubre de 2024 el cierre del caso Neurona, tras más de tres años de investigación sobre Podemos. La noticia existió. El cierre judicial también. Pero hay una diferencia entre que un asunto se termine en un tribunal y que se termine en la imaginación de quien lo ha seguido por entregas.
+
+Bruno no era una víctima perfecta. Le gustaba discutir, utilizaba frases pensadas para que sus adversarios las repitieran indignados y había aprendido a dirigir un estudio de televisión como quien gobierna una pequeña república. Sole no tenía que admirarlo para darse cuenta de que una acusación puede circular a toda velocidad y su rectificación encontrar un atasco de tráfico a la salida.
+
+—¿Guarda usted también las portadas que no me favorecían? —preguntó él.
+
+—Sobre todo esas. Las que lo favorecían se agotaban antes.
+
+Le enseñó una portada vieja. El titular era enorme. Junto a una fotografía del dirigente aparecía una interrogación del tamaño de una farola. Sole había escrito la fecha del archivo judicial en el margen de la hoja, con bolígrafo azul.
+
+—Eso no es periodismo —dijo Bruno.
+
+—Es una portada. Para el periodismo hay que mirar dentro.
+
+Lucía, que pasaba por allí, escuchó la frase y se la guardó. Tenía veinte años menos que Sole y un teléfono con acceso a todas las noticias del planeta. La quiosquera tenía una carpeta de cartón y memoria para recordar cuáles no habían sido ciertas. Las dos herramientas eran útiles; ninguna convertía a su dueña en infalible.
+
+Aquella tarde, en Radio Puchero, un tertuliano recordó la investigación como prueba de que todos los políticos estaban podridos. Otro sostuvo que había sido una persecución judicial completa y deliberada. El tercero pidió que no exageraran mientras exageraba un asunto distinto. Nadie habló del contenido de las resoluciones. Se habían comprometido a debatir sobre «la percepción ciudadana de la justicia», que es un tema muy cómodo porque permite opinar sobre cualquier cosa sin comprobar ninguna.
+
+Pepe escuchó la tertulia en el bar.
+
+—Yo no sé si eran culpables, pero por algo los investigaron.
+
+—También investigaron al primo de tu mujer —le recordó Manolo.
+
+—Eso fue distinto. Era inocente.
+
+—¿Y cómo lo sabes?
+
+—Porque conozco a mi primo.
+
+Manolo dejó los vasos en su sitio. La presunción de inocencia alcanzaba en el universo moral de Pepe una eficacia admirable cuando el sospechoso había compartido con él un bautizo.
+
+Por la noche, Lucía redactó una columna breve. No absolvió a nadie por simpatía, ni condenó a nadie por su ideología. Escribió sobre las portadas de apertura y las notas pequeñas de cierre. Sobre la obligación de investigar delitos y la obligación, menos rentable, de contar cómo terminan las investigaciones. Sobre lo fácil que resulta pedir prudencia cuando el titular afecta al partido propio.
+
+Aurelio leyó el texto y le sugirió un título: «LA NOTICIA QUE NO VOLVIÓ».
+
+—Suena triste —dijo Lucía.
+
+—Lo es.
+
+Sole recibió el semanario el lunes y lo metió en su carpeta. No en «VEREMOS». Abrió una nueva, de color verde, y escribió «POR FIN».
+
+Dos semanas después, al quedarse sin espacio, tuvo que cambiar la etiqueta. Puso «A VECES».
+
+Aurelio no estaba de humor. Había pasado cuatro días comprobando un documento para conseguir que quienes no lo habían leído supieran exactamente de qué lado estaba.
+
+La tarde del viernes recibió una llamada del bar La Parada. Manolo había encontrado bajo la mesa siete una servilleta con una anotación antigua sobre una cita con un técnico. Le preguntó si podía servirle de algo.
+
+Aurelio escuchó la descripción. Después le pidió que la guardara.
+
+## PARTE III  ·  EL RESPETABLE PÚBLICO
+
+# Una ciencia muy poco exacta
+
+El ser humano lleva siglos intentando clasificar a sus semejantes. Tenemos signos del zodiaco, pruebas de personalidad, escalas de liderazgo y un tipo de entrevista de trabajo en la que se pregunta cuál es tu mayor defecto con la esperanza de que nadie responda la verdad. A ese catálogo de instrumentos de precisión variable me gustaría añadir una herramienta doméstica. Su principal ventaja es que no necesita batería. Su principal defecto es que, utilizada por un imbécil, puede producir resultados muy convincentes.
+
+Basta con trazar dos líneas. En una medimos hasta dónde llega la capacidad para hacer bien las cosas. En la otra, hasta dónde llega la disposición a hacerlas correctamente cuando nadie vigila. No son escalas de inteligencia ni de simpatía. Una persona amable puede gestionar de manera desastrosa. Otra, muy eficiente, puede utilizar el conocimiento adquirido para obtener beneficios que jamás mencionaría en una memoria anual.
+
+Se obtienen cuatro territorios. El primero lo ocupa quien tiene buenas intenciones y resultados inciertos. El segundo, quien domina el oficio y además tiene límites. El tercero combina resultados dudosos y pocos reparos. El cuarto sabe perfectamente dónde están las puertas, quién guarda las llaves y qué preguntas conviene contestar con una llamada de teléfono.
+
+[FIGURA APROBADA: MATRIZ COMPETENCIA-INTEGRIDAD — sustituir este marcador por /mnt/data/matriz_de_competencia_e_integridad.png. NO insertar tabla Markdown.]
+
+La tentación inmediata es introducir los nombres de nuestros políticos favoritos. Conviene resistirse. Un eje moral no se rellena con el historial de tuits del adversario. Para evaluar una decisión hay que saber qué se conocía antes de tomarla, qué opciones existían, qué advertencias se recibieron y quién obtuvo qué ventaja. La palabra canalla se escribe muy deprisa; demostrar una intención es bastante más laborioso.
+
+En la comunidad de Paqui no se había robado jamás un euro. Así lo aseguraba el presidente, que llevaba nueve años ocupando el cargo porque nadie más tenía tiempo y él tenía demasiado. Los vecinos confiaban en su honradez, aunque desconfiaban de su sistema de contabilidad. Una cosa no excluye la otra. También se puede confiar en un piloto y preguntarse por qué guarda los mandos del avión en una bolsa de supermercado.
+
+El problema empezó con la iluminación del garaje. Había una hilera de tubos fluorescentes que se encendía a golpes, como una orquesta que aún no ha decidido quién es el director. Un electricista presupuestó mil novecientos euros. Otro, dos mil cuatrocientos. El tercero era cuñado del administrador y ofreció tres mil ciento cincuenta incluyendo «optimización de zonas de sombra».
+
+—Eso de las sombras suena moderno —comentó Pepe.
+
+Paqui pidió que explicaran qué incluía exactamente la optimización. El administrador respondió que había que confiar en los profesionales. Era una observación razonable viniendo de alguien que cobraba por organizar el trabajo de los profesionales y que, hasta entonces, había olvidado enviar los tres últimos recibos de la empresa de limpieza.
+
+Convocaron junta. Acudieron catorce propietarios y dos personas que venían porque no tenían a nadie con quien discutir aquella tarde. Se debatió durante una hora si los nuevos sensores de movimiento podrían registrar quién utilizaba el garaje. Un vecino habló de protección de datos. Otro aseguró que, si lo grababan mientras aparcaba, denunciaría a la Agencia Española de Protección de Datos. Nadie explicó qué delito podía cometer aparcando un Seat de doce años.
+
+Yo he asistido a muchas reuniones vecinales. Algunas me enseñaron más sobre la condición humana que varios tratados de filosofía. El ser humano quiere ahorrar energía, pero no desea entrar en un garaje oscuro. Quiere seguridad, pero no cámaras. Quiere jardines bonitos, pero no riego. Y, si el administrador propone subir la cuota nueve euros, descubre una vocación revolucionaria que no le habían despertado ni tres reformas laborales.
+
+La junta aprobó la opción más barata, previa condición de que los sensores se colocaran donde no molestaran a nadie. El electricista pidió un plano. Nadie lo tenía. La comunidad encargó uno.
+
+Un mes después, la vecina del cuarto B tropezó en una zona sin luz. No sufrió lesiones graves, pero estuvo cuatro días con el brazo en cabestrillo. Paqui le llevó comida. Pepe pidió una reunión extraordinaria para denunciar la incompetencia de la junta. El presidente recordó que Pepe había votado a favor.
+
+—Voté con la información que nos dieron —contestó.
+
+—Nos dieron el presupuesto.
+
+—Precisamente. Faltaba información.
+
+Pepe era capaz de convertir la lectura voluntariamente incompleta de un documento en una injusticia histórica. Si algún día desaparecieran los partidos, los municipios o las naciones, él seguiría encontrando estructuras suficientes para sentirse traicionado.
+
+Paqui había visto al electricista revisando los sensores. Se acercó y le preguntó si el problema tenía solución.
+
+—Sí. Hay que mover dos sensores y añadir un punto de luz.
+
+—¿Y cuánto cuesta?
+
+—Doscientos veinte euros.
+
+Cuando Paqui llevó la cifra a la siguiente junta, varios propietarios protestaron. Ya se había aprobado una obra. Pagar otra suponía reconocer que la primera había salido mal. Paqui escuchó los argumentos y propuso algo que no figuraba en el orden del día: pagar entre todos la reparación y después decidir de quién era la culpa, si aún quedaban ganas.
+
+La votación salió adelante por una mayoría estrecha. Pepe se abstuvo. No porque estuviera en contra, explicó, sino porque no quería avalar el procedimiento.
+
+A la salida, el presidente le pidió que le ayudara a subir unas cajas al trastero. Pepe lo hizo sin rechistar. Durante diez minutos cargó peso, abrió puertas y resolvió dificultades concretas sin convocar una asamblea.
+
+Paqui lo observó desde el ascensor. El hombre era un prodigio: en cuanto dejaba de hablar del bien común, empezaba a practicarlo.
+
+Tampoco la competencia se ve siempre en una fotografía. Un gestor puede tomar una decisión sensata que produzca un resultado malo por circunstancias ajenas a su control. Otro puede salir beneficiado por una casualidad, la labor de sus empleados o la suerte de ocupar el despacho cuando dejó de llover. La vida pública está llena de personas que han confundido el final de la tormenta con una prueba de liderazgo.
+
+Pero, si la tabla solo sirve para identificar cuatro perfiles, estamos desperdiciando una servilleta. Hay una tercera variable que suele resultar decisiva: la utilidad que cada persona representa para quienes deciden su carrera. Un superior puede necesitar alguien que piense con independencia. También puede preferir a alguien que no le contradiga delante de sus invitados. Todo depende de la clase de reunión que quiera celebrar.
+
+Lo malo de los gráficos es que producen una sensación irresistible de haber explicado la realidad. Con cuatro casillas y dos flechas es posible sentirse más listo que un país entero. Si el lector experimenta ese impulso, quizá le convenga colocar el libro sobre la mesa, servirse agua y comprobar cuánto sabe de la última cuestión sobre la que opinó con absoluta seguridad. No hace falta confesárselo a nadie. Las instituciones ya tienen bastante trabajo sin empezar a tramitar nuestras pequeñas revelaciones personales.
+
+# El domingo de Rafael
+
+Rafael compraba el periódico los domingos desde que se jubiló. Decía que la prensa se había vuelto insoportable, pero la necesitaba para enfadarse con precisión antes del almuerzo. A las nueve bajaba al bar de Paco, pedía un café solo y colocaba el diario junto a la tostada. Lo leía por secciones, comenzando por los deportes y terminando por la política, que a su juicio venían siendo lo mismo desde hacía bastantes años, con la diferencia de que los futbolistas reconocían al menos cuándo habían encajado un gol.
+
+Había trabajado treinta y ocho años arreglando ascensores. Sabía distinguir el sonido de un rodamiento defectuoso de una falta de lubricación y conservaba en el trastero una colección de piezas que su mujer quería donar a un museo de cosas que nadie necesitaba. Rafael se consideraba una persona práctica. Su frase preferida era «esto se arregla en media mañana», aunque había objetos en su casa pendientes desde el invierno de 2017.
+
+Aquel domingo, una noticia sobre listas de espera le hizo chasquear la lengua.
+
+Paco, que estaba llenando una aceitera, preguntó quiénes exactamente.
+
+El camarero asintió. Llevaba veintitrés años atendiendo clientes y había descubierto que asentir no era dar la razón, sino una forma bastante eficaz de seguir trabajando.
+
+Rafael pasó a una entrevista. Un dirigente de un partido emergente prometía una reforma profunda de los servicios, una reducción de estructuras administrativas y una gestión más ágil. Rafael sonrió.
+
+Paco había preguntado por las pensiones porque su padre acababa de recibir una carta y porque esa mañana él mismo había calculado el coste de sustituir el congelador. Rafael, sin embargo, interpretó la pregunta como una maniobra dialéctica. Para evitar una discusión innecesaria, ambos acordaron que la situación era insostenible. Rafael terminó el café y se marchó satisfecho.
+
+El martes tenía cita en el hospital comarcal. La rodilla llevaba tiempo dándole guerra, pero al traumatólogo no le preocupó tanto como a él. Le recetó ejercicios, pidió una prueba adicional y le explicó que lo llamarían cuando hubiera hueco. Rafael preguntó cuánto tardarían. El médico no supo responder con precisión. Le mostró el volante y volvió a la consulta, donde esperaba una paciente con un bastón plegable y dos folios de preguntas.
+
+El martes en que Rafael empezó a calcular cuánto podría tardar una resonancia, mi tía Aurora me llamó por teléfono. Llevaba tres semanas intentando cambiar una cita y había desarrollado con el contestador automático una relación que, de haber sido entre dos personas, habría justificado una denuncia por acoso.
+
+—Me dicen que marque el dos —explicó—. Marco el dos y me dicen que espere. Espero y me vuelven a decir que marque el dos.
+
+—¿Has probado a marcar el uno?
+
+—Claro. Me mandan al dos.
+
+Conocí una vez a un ingeniero que diseñaba sistemas de atención telefónica. Me explicó con verdadero entusiasmo cómo habían conseguido que una empresa respondiera a cientos de miles de llamadas sin contratar a nadie para contestarlas. Lo contaba como un triunfo de la técnica. Quizá lo era. También los romanos construyeron acueductos magníficos, pero no sé si habrían celebrado con el mismo fervor un sistema para transportar agua que no llegara a los grifos.
+
+Aurora necesitaba una revisión. Nada dramático, según el médico, y aquello era una buena noticia. El problema consistía en que la consulta asignada coincidía con la mañana en que acompañaba a su hermana a rehabilitación. A los setenta y tantos se puede tener una agenda más exigente que la de un director general sin disponer de secretaria, chófer ni alguien a quien culpar de los errores de planificación.
+
+Me comprometí a ayudarla. Es una expresión que utilizamos mucho en mi familia y que suele significar que uno se ofrece a hacer algo antes de saber cuántas contraseñas van a pedirle.
+
+Entré en la aplicación. La aplicación me pidió identificarme. Después me pidió verificar mi identidad. Luego envió un código a un teléfono que Aurora había dado de baja durante la pandemia. La pantalla ofrecía un enlace para modificar el número; el enlace exigía verificar la identidad mediante el código enviado al número que queríamos modificar. Debo reconocer que el círculo estaba construido con una elegancia matemática considerable.
+
+Me enfadé. Lo hice como suele enfadarse una persona que tiene ordenador, conexión a internet, conocimientos suficientes y dos horas disponibles. Pensé en quien no tuviera ninguna de esas cuatro cosas y me enfadé un poco más, aunque de momento eso no mejoraba la cita de Aurora.
+
+Al día siguiente fui a La Parada. Manolo todavía no había decidido anunciar oficialmente su jubilación y servía los cafés con la paciencia de alguien que está agotando las últimas existencias de paciencia. Pepe ocupaba su sitio junto a la ventana. Había colocado sobre el mostrador un recorte de prensa sobre un consejero acusado de favorecer a personas conocidas. Al verlo, golpeó el papel con dos dedos.
+
+—Esto es lo que nos pierde. El enchufismo. Aquí sin conocer a uno no consigues nada.
+
+Yo estaba dispuesto a darle la razón. Tenía preparada incluso una observación sobre la igualdad de oportunidades que probablemente le habría parecido insoportable a quien tuviera que escucharla. Entonces entró Alicia Vela, la responsable de suministros del hospital comarcal, y Pepe la saludó con una confianza que no necesitaba presentación.
+
+—Alicia, guapa. Oye, lo de mi cuñado, ¿pudiste mirarlo?
+
+—Te dije que lo presentara por registro.
+
+—Si es para saber cómo va.
+
+—Por registro también se puede saber.
+
+Pepe volvió a su periódico. El consejero continuaba fotografiado en la portada, tan convenientemente inmóvil que permitía seguir indignándose contra él sin interrumpir las conversaciones importantes.
+
+Yo aproveché que Alicia estaba esperando un café para preguntarle por el procedimiento de Aurora. No le pedí que adelantase la cita. Le pregunté cómo cambiarla. Fue una pregunta honrada, salvo por el hecho de que esperaba obtener de una conocida la respuesta que el sistema no le daba a una desconocida.
+
+Alicia me explicó a qué ventanilla debía dirigirme y qué justificante necesitaba. Sacó un bolígrafo y escribió el número de extensión en una servilleta. Se detuvo antes de entregármela.
+
+—Mira —dijo—. Ese teléfono es de información. No sirve para que te salten la cola.
+
+—No pretendía eso.
+
+—Ya. Por eso te lo aclaro antes.
+
+Hay personas cuya integridad resulta verdaderamente molesta. Uno se dispone a interpretar un papel bastante digno y ellas tienen la descortesía de leer el guion antes que nosotros.
+
+Llamé desde la calle. Esta vez respondió una mujer. Había habido una cancelación a primera hora del viernes. Podíamos tomarla o esperar a la siguiente convocatoria de citas. Acepté tan deprisa que no pregunté siquiera a qué hora era. Las siete y cuarto. Aurora vivía en la otra punta de la comarca.
+
+—De maravilla —dije, como si fueran a enviarnos un coche.
+
+La mujer de la centralita me preguntó si estaba seguro. Aquella duda debería haberme servido de aviso. Pero cuando uno lleva mucho tiempo esperando que una puerta se abra, no suele detenerse a comprobar si da a la calle o al cuarto de las escobas.
+
+Aurora no podía ir. Su hermana salía de rehabilitación a las ocho. Se lo conté a Alicia, sin pedirle nada, que es una manera muy elegante de volver a pedirlo todo.
+
+—No puedes elegir la cita de otra persona según tu conveniencia —me respondió.
+
+La frase me indignó porque era cierta. Habría preferido que fuese falsa, o al menos que contuviera alguna incorrección gramatical sobre la que discutir.
+
+Pero Alicia añadió algo que yo no esperaba:
+
+—Lo que sí puedes hacer es dejar constancia de que necesita una franja compatible con cuidados familiares. Tienen un procedimiento para estos casos. No garantiza nada, pero obliga a que lo lean.
+
+—¿Por qué no aparece en la aplicación?
+
+—Buena pregunta.
+
+—¿Y quién tendría que responderla?
+
+—Otra pregunta estupenda.
+
+Alicia se levantó. Tenía que regresar al hospital. Allí faltaban dos auxiliares, había una avería en una máquina que nadie sabía si dependía de mantenimiento o del proveedor y llevaban cuatro días esperando una pieza cuyo presupuesto había firmado la persona equivocada. No hizo un discurso sobre la dignidad del servicio público. Se limitó a pagar su café y marcharse.
+
+De regreso a casa me crucé con una mujer que salía del centro de salud llevando un carrito de bebé y una bolsa de farmacia. Me preguntó dónde estaba la parada del autobús a Villacobos. Se lo indiqué. Después me explicó, sin que se lo pidiera, que había perdido una cita porque el autobús anterior no había pasado. Ya le habían dado otra. Dentro de nueve semanas.
+
+Quise decirle que presentara una reclamación. Era el consejo correcto, lo sabía. También sabía que yo llevaba dos días yendo personalmente de aquí para allá porque mi tía no podía perder una mañana. Ella tenía un bebé dormido, una bolsa de medicinas y veinte minutos para llegar a una parada. Le pregunté si quería que la acompañase. Caminamos hasta el poste de horarios.
+
+El próximo autobús salía dentro de cuarenta y cinco minutos.
+
+—Bueno —dijo ella—. Al menos este aparece en la pantalla.
+
+No añadió nada más. La resignación rara vez pronuncia grandes frases. Le basta con consultar el reloj.
+
+Aquella tarde conseguí que registraran la solicitud de Aurora. No había cambiado nada en el fondo. Seguíamos sin fecha, seguíamos dependiendo de alguien que leyera una observación en una pantalla y todavía había una diferencia entre tener una sobrina paciente y tener un sobrino con ganas de discutir por teléfono.
+
+Le dije a mi tía que probablemente tardarían.
+
+—No pasa nada —respondió—. Estamos acostumbradas.
+
+Y esa fue, con diferencia, la parte que peor me sentó.
+
+Al domingo siguiente, Pepe volvió a indignarse por un escándalo de favoritismo. Yo estuve a punto de recordarle lo de su cuñado. No lo hice. Acababa de descubrir que es muy fácil exigir que desaparezcan los enchufes, pero bastante menos cómodo renunciar al último número de teléfono que creemos que puede abrirnos una puerta.
+
+Pedí otro café.
+
+—Te lo apunto —dijo Manolo.
+
+No suelo aceptar fiado. Aquella mañana hice una excepción.
+
+Al miércoles siguiente, Rafael acudió a la reunión semanal de dominó del Club La Concordia. Allí estaba Emilio, antiguo profesor de instituto, que había desarrollado una costumbre casi ofensiva: cuando alguien afirmaba saber cómo arreglar el país, le pedía que explicara el primer paso.
+
+Rafael decía que la política moderna había convertido la indignación en un servicio a domicilio. Ya no hacía falta acercarse al mitin: la indignación llegaba al móvil, envuelta en una oferta limitada y con gastos de envío gratuitos.
+
+Damián Rebollo no tenía una sede, tenía seguidores. No convocaba reuniones, convocaba directos. Tampoco había elaborado un programa especialmente detallado: su principal propuesta consistía en que todos los demás se marcharan. La sencillez de la idea le garantizaba una ventaja competitiva. Era fácil de recordar, difícil de refutar en cuatro palabras y no obligaba a explicar quién limpiaría las instalaciones después.
+
+En Valdeperdices lo invitó a hablar una asociación llamada «Vecinos Despiertos», integrada por catorce personas que no se ponían de acuerdo sobre la hora de comienzo de las reuniones. Se convocaron a las siete. Llegaron a las ocho porque Damián estaba grabando un vídeo en la puerta del teatro, enfadado con un guardia que le había pedido retirar el coche de una zona de carga y descarga.
+
+—Este país necesita libertad —dijo ante doscientos teléfonos.
+
+El guardia le explicó que la libertad no incluía bloquear la salida de una ambulancia. Damián sonrió hacia la cámara.
+
+—Ahí lo tienen. La persecución comienza.
+
+Un talento político notable consiste en transformar una indicación de tráfico en una epopeya personal. Desde ese momento, cualquier multa es censura, cualquier crítica es miedo del sistema y cualquier obligación común es un privilegio que los poderosos niegan a los elegidos. Esta filosofía tiene una aplicación práctica irresistible: siempre se puede aparcar mal por una causa superior.
+
+Pepe acudió al acto porque le gustaban los hombres que hablaban fuerte. No sabía gran cosa de las propuestas de Damián, pero le parecía que decía verdades que otros callaban. Sole lo acompañó por curiosidad. Había comprado dos entradas porque el cartel anunciaba un aforo limitado y no quería perderse el espectáculo. Al entrar descubrieron que la asociación había reservado trescientas localidades y solo había vendido ciento veinte.
+
+Damián habló durante una hora. Acusó a los partidos de enriquecerse, a los periodistas de mentir, a las instituciones de ocultar información y a sus críticos de no ser verdaderos ciudadanos. Después abrió una ronda de preguntas moderada por una persona de su equipo, que seleccionó las que llegaban por una aplicación.
+
+Sole levantó la mano.
+
+—Quería preguntarle por la financiación de su plataforma.
+
+—Ya está la prensa manipulada —dijo Damián.
+
+—Tengo un quiosco.
+
+—Peor todavía. Usted vive de vender sus mentiras.
+
+Sole lo pensó un instante.
+
+—Yo vendo periódicos. Los compro a distribuidoras. Si quiere, le enseño las facturas.
+
+El público rio. No todo el público. La mitad parecía encantada de que alguien hubiera colocado a Damián ante una pregunta incómoda; la otra mitad consideró que aquella mujer estaba intentando sabotear una revolución desde un negocio con toldo de rayas.
+
+En la política real de los últimos años hubo dirigentes antisistema obligados a ofrecer explicaciones sobre su financiación ante órganos de investigación. No me interesa utilizar una investigación como condena anticipada. Me interesa otra contradicción más universal: exigir transparencia al mundo mientras se considera una ofensa que se pregunte por los propios ingresos.
+
+Cuando terminó el acto, Pepe se acercó para hacerse una fotografía. Damián lo abrazó sin conocer su nombre, le dijo que hacía falta gente valiente y le pidió que siguiera difundiendo sus mensajes. Pepe volvió al bar emocionado.
+
+—Es como uno de nosotros —dijo.
+
+Manolo, que había pagado la luz del local aquella misma mañana, preguntó quién abonaba los gastos del teatro.
+
+—Eso es secundario —respondió Pepe.
+
+—Es curioso. Cuando organizamos la fiesta del barrio, querías revisar hasta los tickets de las servilletas.
+
+—Porque aquello salía de nuestro dinero.
+
+—¿Y esto de cuál sale?
+
+Pepe miró su fotografía con el líder. Habían salido ambos muy bien.
+
+—No sé, Manolo. A veces te pierde el detalle.
+
+Se la envió a veinte contactos. Diecinueve reaccionaron con un pulgar levantado. El vigésimo era su hijo, que le escribió: «Papá, ¿otra vez te has gastado dinero en una entrada para que te digan que no te gastes dinero?».
+
+Pepe decidió no contestar. Había cosas que la juventud todavía no estaba preparada para entender.
+
+Al domingo siguiente Rafael volvió a comprar el periódico. Se aseguró, eso sí, de que no hubiera ninguna entrada para un acto político cargada en la tarjeta.
+
+—Yo voy a votar para que cambien las cosas —anunció Rafael mientras repartía las fichas.
+
+Emilio guardó silencio. No estaba seguro de que aquello fuera una respuesta incorrecta, pero sí de que serviría para gestionar casi cualquier cosa, desde un hospital hasta una churrería. Preguntó qué criterio utilizaría para elegir a esa gente. Rafael colocó el doble seis sobre la mesa.
+
+Emilio le recordó que muchos directivos públicos eran profesionales y que las decisiones sobre presupuesto, prioridades y acceso seguirían siendo políticas aunque las firmara un médico. Rafael respondió que el problema de Emilio era que siempre encontraba dificultades.
+
+No discutieron más. Ganaron la partida por dos puntos. Aquello permitió a Rafael declarar que, cuando uno sabe hacer las cosas, los resultados terminan llegando.
+
+El domingo siguiente volvió al bar. Paco había subido el desayuno veinte céntimos. Había cambiado el proveedor de café, pagaba más por la electricidad y la máquina empezaba a necesitar una reparación que costaba lo mismo que una temporada de vacaciones en la costa.
+
+A las ocho y cincuenta y siete, el productor le puso a Damián Rebollo un pinganillo que no funcionaba. Damián lo golpeó con dos dedos y acusó al gobierno de interferir las comunicaciones. La avería se solucionó cuando la técnica de sonido enchufó el transmisor. El agitador agradeció a los espectadores haber presenciado otro ejemplo de censura.
+
+El plató tenía una mesa brillante, seis vasos idénticos y un fondo digital que representaba un Parlamento vacío. A un lado se sentaba una exdiputada que había descubierto su verdadera vocación periodística después de perder el escaño. Al otro, un abogado que explicaba las diligencias penales con la desenvoltura de quien nunca tendría que redactarlas. En el centro estaba Celia Montenegro, asesora de comunicación y especialista en convertir un asunto incómodo en una pregunta sobre las intenciones de quien preguntaba.
+
+El tema de la noche era un documento judicial filtrado. Se sabía poco de su contenido, mucho de su circulación y prácticamente todo sobre lo que cada participante estaba dispuesto a pensar antes de leerlo. La televisión moderna ha convertido la ignorancia compartida en un formato de debate muy rentable. Si todos los presentes reconocieran la incertidumbre, el programa terminaría a las nueve y cuarto y habría que devolver parte de la publicidad.
+
+—Tenemos una exclusiva —anunció el presentador.
+
+Era una frase sorprendente, pues la exclusiva había aparecido ya en siete canales y la estaban comentando doscientos mil teléfonos.
+
+Damián fue el primero en intervenir.
+
+—Esto demuestra lo que llevo años diciendo.
+
+—¿Lo has leído? —preguntó la exdiputada.
+
+—No necesito leerlo para saber de qué estamos hablando.
+
+Celia sonrió. Apreciaba las convicciones incombustibles porque eran la materia prima de su oficio. Llevaba años enredando debates con la elegancia de un camarero que recoge el mantel tirando de él sin que caigan las copas. Esa noche decidió aplicar un procedimiento conocido: no hablar del documento, sino de la hora a la que se había filtrado.
+
+—Lo importante es quién pretende beneficiarse de esta publicación —dijo.
+
+—¿Y qué dice el documento? —preguntó el presentador.
+
+—Eso habrá que determinarlo.
+
+El abogado intervino para recordar que una investigación no equivalía a una condena. Fue una observación excelente, pronunciada inmediatamente antes de insinuar que determinados magistrados estaban jugando una partida política cuyo reglamento conocía de manera misteriosa. Yo admiro la coherencia de los juristas televisivos: tienen la extraordinaria habilidad de defender la presunción de inocencia en una frase y retirarla en la siguiente sin necesidad de respirar.
+
+En el Bar La Parada, Pepe seguía el programa con interés. Sole hacía las cuentas del día. Encarna estaba sentada cerca de la puerta esperando a su nieta.
+
+—Este sí sabe lo que dice —afirmó Pepe al escuchar al abogado.
+
+—Hace tres minutos has dicho que era un vendido —replicó Sole.
+
+—Era antes de que hablara.
+
+La tertulia cambió de tema después de un corte publicitario. Una inundación había obligado a cerrar un colegio. Un diputado pidió responsabilidades. Otro recordó los presupuestos de hace diez años. La presentadora quiso saber si había niños afectados. Celia consideró que esa pregunta era emocionalmente comprensible, pero institucionalmente prematura.
+
+Encarna apagó la televisión. Nadie protestó. Por la ventana se veía a una madre corriendo con un paraguas hacia la parada de autobús y a un niño que había perdido una zapatilla en un charco. El pequeño se quedó mirándola hasta que la mujer volvió a buscarla. Era una escena menor. No merecía una mesa de expertos.
+
+La tertulia siguió emitiéndose en el móvil de Pepe. Antes de cerrar, el programa mostró una fotografía de Damián abandonando el estudio entre cámaras. Al día siguiente, la cuenta oficial del canal publicó el corte de su denuncia de censura. Recibió miles de reproducciones.
+
+La técnica de sonido, que había reparado el transmisor a las ocho y cincuenta y ocho, vio el vídeo mientras cenaba. Pensó en escribir un comentario. No lo hizo. A veces la democracia se sostiene también sobre el cansancio de quienes conocen la diferencia entre un sabotaje y un enchufe suelto.
+
+Rafael apagó el televisor y volvió al bar. Pensó que al menos allí, cuando alguien se equivocaba, otro podía pedirle que pagara la siguiente ronda.
+
+—¿Dos ochenta? —protestó Rafael—. Pero si antes eran dos sesenta.
+
+—Algo tendrás que hacer para que funcione el negocio —dijo Rafael.
+
+Paco le dio la vuelta al ticket y escribió la nueva tarifa. Lo pegó junto a la caja, donde podía verse claramente. Aprendió aquella mañana que las reformas suelen gozar de un apoyo muy amplio hasta que alguien anuncia el importe.
+
+Después sirvió otra tostada. El país seguía necesitando soluciones y la plancha estaba encendida.
+
+# La noche de los porcentajes
+
+A las ocho de la tarde, en la sede de los Azules descorcharon una botella de espumoso. Nadie sabía exactamente por qué. Un sondeo interno les otorgaba una subida de cuatro décimas respecto a otro sondeo interno, realizado por una empresa distinta y con una pregunta ligeramente diferente. El jefe de campaña había preparado un gráfico con una flecha que salía desde abajo a la izquierda y terminaba muy arriba a la derecha. Era una flecha de una ambición admirable para representar cuatro décimas.
+
+En la sede de los Coloraos celebraban simultáneamente el estancamiento del rival. Candelaria Peñarrocha sostenía que el electorado empezaba a castigar la política de gestos de Evaristo Mangarrán. Mostró otro gráfico. En él, los Azules apenas se movían. La televisión local colocó las dos imágenes una detrás de otra. Durante cinco minutos, la ciudad pudo contemplar el extraño fenómeno de un partido que subía vertiginosamente mientras no se movía del sitio.
+
+La periodista encargada de la retransmisión telefoneó a la empresa demoscópica. La atendió una mujer que llevaba desde las siete explicando que el margen de error impedía interpretar diferencias tan pequeñas como tendencias concluyentes. La periodista preguntó si podía resumirlo en una frase. La técnica dijo que sí: «No sabemos si han subido». La redacción consideró que ese titular era poco atractivo.
+
+A las nueve, Radio Puchero organizó una tertulia. Los participantes hablaron de cambio de ciclo, agotamiento institucional, voto útil y voto de hartazgo. Un comentarista opinó que el sondeo reflejaba el malestar de las clases trabajadoras. Otro sostuvo que eran las clases medias. Un tercero dijo que las encuestas nunca acertaban, razón por la cual llevaba veinte minutos utilizándolas para demostrar que tenía razón.
+
+En casa de los Peñarrocha, Candelaria seguía los comentarios de la audiencia. Su sobrino le preguntó si una subida de medio punto era buena o mala. Ella respondió que dependía del contexto. El niño quiso saber entonces por qué la televisión había anunciado que los dos partidos estaban ganando. Candelaria le dijo que la política era complicada. Su sobrino, que tenía once años y acababa de aprender fracciones, sospechó que el problema no estaba exactamente en las matemáticas.
+
+La noche electoral tiene su propia meteorología: un dato llega como lluvia fina, otro cae como granizo y a las diez todos los portavoces aseguran que el clima les favorece. En otras noches una simple hora estampada en un correo basta para reconstruir una tormenta entera.
+
+La primera persona que vio aquel correo no se dio cuenta de su importancia. Era una administrativa de un despacho de abogados y llevaba cuarenta minutos intentando convencer a una impresora de que no estaba atascada. El mensaje había entrado a las ocho y doce, tenía cuatro destinatarios y trataba de una propuesta de conformidad fiscal. Lo archivó en la carpeta del cliente, comprobó la fecha y volvió a enfrentarse a la máquina.
+
+Años después, el correo terminaría convertido en una de esas piezas de papel que adquieren propiedades casi religiosas. Cada bando lo invocaba para demostrar una cosa distinta. La presidenta Amalia Robledal, que gobernaba una comunidad autónoma de nuestra ficción y que tenía un talento escénico superior al de muchos actores de reparto, denunciaba una intromisión inaceptable. El antiguo alto responsable de la Fiscalía, Gabriel Ledesma, defendía la necesidad de aclarar informaciones públicas inexactas. El empresario Leandro Cifuentes, por su parte, había aprendido que una cuenta con Hacienda puede multiplicarse de tamaño cuando entra en un conflicto institucional.
+
+No todos los hechos caben en una novela, y menos aún en un hilo de mensajes. En la realidad, el Supremo condenó en 2025 al fiscal general Álvaro García Ortiz por revelación de datos reservados en relación con un correo y una nota informativa; dos magistradas formularon un voto discrepante favorable a la absolución. Son hechos jurídicos distintos de la investigación tributaria que concernía al empresario al que aludía la información. Lo digo porque la vida pública tiene una extraña inclinación a producir debates en los que cada cual escoge el procedimiento que le resulta más simpático y deja los otros para otro día.
+
+La escena que me interesa, sin embargo, sucede en un pueblo. Pepe y Sole están en La Parada. Pepe ha decidido que el asunto confirma definitivamente que todos persiguen a todos. Sole quiere saber si ha leído la sentencia.
+
+—He leído lo importante.
+
+—¿Cuántas páginas?
+
+—No me he puesto a contarlas.
+
+—Digo cuántas has leído.
+
+Pepe mira la pantalla. En ese momento aparece Amalia Robledal, impecable ante un fondo institucional. La presidenta ha aprendido una habilidad útil en una rueda de prensa: convertir una pregunta sobre algo concreto en una respuesta sobre la civilización occidental.
+
+—Mira cómo habla —dice Pepe—. Esta mujer no se anda con tonterías.
+
+Sole escucha tres minutos. No oye una respuesta a la pregunta formulada.
+
+—Habla bien, desde luego. ¿Qué ha contestado?
+
+—Lo que había que decir.
+
+—Pero ¿a qué pregunta?
+
+Pepe levanta la mano, ofendido ante el formalismo. Para él, la claridad es una propiedad del tono de voz. Alguien puede contestar con absoluta seguridad una cosa distinta de lo que se le pregunta y seguir resultando cristalino. Esto explica parte del éxito de los discursos motivacionales y casi toda la popularidad de algunos tertulianos.
+
+Lucía entra con un periódico doblado. Trae una noticia sobre el recurso de una sentencia y otra, más pequeña, sobre una sanción por incumplir la normativa de aguas en Villacobos. Pepe se concentra en la primera porque hay fotografías de personas conocidas. Sole se concentra en la segunda porque bebe agua de Villacobos. La distribución de prioridades no permite conclusiones ideológicas muy interesantes, pero explica bastante bien la vida diaria.
+
+La periodista pregunta si el bar aceptaría organizar un debate ciudadano sobre la presunción de inocencia. Manolo responde que sí, siempre que se hable de la de todo el mundo y no únicamente de los clientes habituales. La propuesta se desinfla.
+
+Esa noche se reúne en el piso de Lucía un grupo de compañeros. Uno asegura que una condena prueba que toda la institución estaba podrida. Otro sostiene que la discrepancia de dos magistradas invalida la resolución. Lucía pregunta si aceptarían ese mismo razonamiento aplicado a un caso que afectase a su partido preferido. Se produce un silencio interesante. Los silencios interesantes deberían cotizar en bolsa: son mucho menos frecuentes que las opiniones y requieren un esfuerzo considerable.
+
+Al día siguiente, la administrativa del despacho vuelve a abrir el archivo antiguo. Necesita recuperar la fecha de recepción del mensaje original. La encuentra en veinte segundos. Nadie la llama para preguntarle qué opina de la independencia judicial. Ella tampoco tiene demasiado interés en contarlo.
+
+La impresora sigue atascándose.
+
+Me parece un detalle apropiado. A veces el país discute durante meses sobre un correo electrónico y sigue sin resolver qué hacer con la máquina que lo imprimió.
+
+La aritmética electoral reclamó entonces de nuevo la atención del país. Parecía que después de tantos porcentajes aún quedaba sitio para otro gráfico.
+
+Mientras tanto, el alcalde Evaristo miraba el móvil en la mesa de su cocina. Su mujer le pidió que apagara las notificaciones porque el arroz se estaba enfriando. Evaristo dijo que no podía: estaban haciendo historia. Ella contestó que, por el momento, lo único que estaban haciendo era cenar tarde.
+
+Al día siguiente, El Pregonero publicó los resultados con un titular prudente: «Los dos partidos ven motivos para el optimismo». La noticia obtuvo menos visitas que una información sobre el descubrimiento de una tortuga en la fuente de Valdeperdices.
+
+Aurelio Perdigón, su director, miró las estadísticas de lectura y anunció que había que mejorar el enfoque digital del periódico. La becaria propuso escribir más sobre tortugas.
+
+Es tentador atribuir los resultados a una sola cara en un cartel. Detrás hay personas que pasan años organizando reuniones, decidiendo turnos y repartiendo silencios. Suelen aparecer poco en los mítines y mucho en las llamadas posteriores.
+
+Nicasio Beltrán tenía las llaves de una sede política que ya no existía. Las conservaba en un cajón con los candados antiguos, las tarjetas de acceso y una fotografía de la primera asamblea donde lo eligieron secretario de Organización. En la imagen aparecía al fondo, casi oculto detrás de un ramo de flores. Veinticinco años después habría resultado difícil encontrar una fotografía de la organización en la que no estuviera.
+
+A Nicasio no le interesaban las grandes frases. Desconfiaba de las personas capaces de improvisar discursos conmovedores y olvidarse después de reservar un autobús para llevar a los afiliados. Él había aprendido que las mayorías se construyen con llamadas, horarios, pequeños compromisos y una paciencia que no figura en los programas electorales.
+
+La primera vez que coincidió con Faustino Jadraque en la mesa siete de La Parada, lo saludó como a un conocido de trabajo. La segunda lo llamó por su nombre de pila. En la tercera, Jacinto Urrutia ocupaba la silla junto a la ventana.
+
+Manolo había visto muchas amistades nacer sobre un mantel. Aquella le pareció distinta porque los tres llegaban por separado, pagaban por separado y se marchaban con una discreción profesional que no combinaba con la cantidad de teléfonos colocados sobre la mesa.
+
+—¿No les molesta comer con tanto aparato? —preguntó un día.
+
+—Son herramientas —dijo Faustino.
+
+—Pues deben de trabajar ustedes demasiado. El mío solo sirve para que me pidan más pan.
+
+Una mañana Nicasio recibió la llamada de Lorenzo Ábrego, antiguo ministro que había sido su amigo durante años. Lorenzo quería que se vieran con calma. Había pasado una mala temporada, decía, y necesitaba aclarar algunas cosas. Nicasio le propuso un café el jueves. Al colgar miró los documentos sobre su mesa y tachó una reunión que podía esperar.
+
+Hay amistades que sobreviven a una derrota electoral, un divorcio o una mudanza. Las amistades políticas deben superar también la prueba de un titular judicial. No es justo considerar sospechoso a quien se aleja de un antiguo compañero; puede estar simplemente abrumado o querer respetar el procedimiento. Tampoco es admirable mantener todas las lealtades a cualquier precio. La dificultad consiste en distinguir la prudencia de la huida, una frontera que se aprecia mucho mejor desde el lado de quien espera la llamada.
+
+Lorenzo llegó puntual al café. Se había afeitado con esmero y llevaba una carpeta de cuero marrón. No la abrió durante los primeros diez minutos. Hablaron de sus hijos, de un antiguo compañero del partido y del dolor de espalda que lo obligaba a cambiar de silla cada veinte minutos.
+
+—Se están diciendo cosas que no son verdad —dijo por fin.
+
+—Habrá que demostrarlo —respondió Nicasio.
+
+—¿Tú me crees?
+
+Era una pregunta poco profesional. Nicasio había gestionado durante décadas conflictos que exigían respuestas concretas: cuándo se convocó una reunión, quién autorizó un gasto, qué documento se registró. Creer o no creer a un amigo no resolvía ninguna de aquellas cuestiones.
+
+—Te conozco —dijo.
+
+Lorenzo sonrió por primera vez. No era un sí, pero se parecía lo suficiente para permitirle respirar.
+
+Mientras tanto, en la capital, un tribunal seguía investigando adjudicaciones de obra pública relacionadas con personas que habían ocupado responsabilidades en organizaciones políticas. En 2026, una rama de un conocido procedimiento español continuaba en instrucción, separada de otra en la que ya existía sentencia. La diferencia entre ambas cosas apenas cabía en algunos titulares, que preferían agrupar bajo una misma etiqueta todo lo que permitiera mantener abierta la historia.
+
+El problema de los atajos periodísticos es que la culpa y la inocencia son individuales, mientras el escándalo circula muy bien en paquetes familiares.
+
+Nicasio se levantó para pagar. Lorenzo le recordó que habían quedado en verse otra vez. Respondió que sí, pero no concretó fecha. Antes de salir, el exministro se volvió.
+
+—¿Seguimos siendo amigos?
+
+Nicasio tardó unos segundos más de lo habitual.
+
+—Eso no tiene que decidirlo un periódico.
+
+La frase fue generosa y también prudente. No prometía nada sobre las próximas semanas. Aun así, Lorenzo se la llevó como quien encuentra un paraguas olvidado justo antes de que empiece a llover.
+
+En la cocina de La Parada, Manolo guardó las copas. Habían pedido dos cafés y tres vasos de agua. Al llegar la noche encontró una carpeta de cuero sobre la silla. La abrió lo justo para localizar un nombre y un número de teléfono. Era de Lorenzo.
+
+Manolo lo llamó. Contestó una voz automática que pedía dejar un mensaje después de la señal.
+
+—Se ha dejado usted la carpeta en La Parada —dijo—. La guardo aquí. No se preocupe.
+
+La carpeta siguió en el cajón de objetos perdidos durante una semana. Luego apareció un chófer para recogerla. Firmó un recibo. Dijo que su jefe estaba muy ocupado.
+
+Manolo archivó el recibo junto al de un paraguas de mango de pato que nadie había reclamado.
+
+En las pantallas seguían brillando las cifras. A medida que avanzaba la noche, cada cuartel general encontraba una forma distinta de llamar victoria al mismo resultado.
+
+Por primera vez en semanas, todos estuvieron de acuerdo.
+
+## PARTE IV  ·  CUANTO MEJOR, PEOR
+
+# El noble arte de elegir un incendio
+
+Conozco personas que votan con esperanza y otras que votan con una resignación muy similar a la de quien elige la compañía telefónica. No esperan que el servicio sea extraordinario. Se conforman con que el nuevo contrato tarde unas semanas en recordarles por qué habían cambiado de operador.
+
+El voto al mal menor tiene un problema filosófico que raramente aparece en los debates: obliga a comparar dos futuros que todavía no existen con un pasado que conocemos demasiado bien. Es como elegir entre un fontanero que ya ha inundado el baño y otro del que solo tenemos fotografías con una llave inglesa. El primero puede haber aprendido de sus errores. El segundo puede ser un excelente profesional. También cabe la posibilidad de que las fotos pertenezcan a su primo.
+
+No es una actitud necesariamente irracional. Cuando un ciudadano considera que ninguna opción representa sus principios, elegir la que cree menos perjudicial puede ser una decisión perfectamente comprensible. La dificultad aparece cuando esa comparación se convierte en un perdón anticipado que no caduca nunca. Cada fallo encuentra una excusa en el desastre que habría causado el adversario. Cada denuncia pierde gravedad al recordar otra denuncia más antigua. La política termina pareciéndose a una competición de hundimientos en la que el trofeo lo recibe quien consigue mantener la cabeza a un centímetro de la superficie.
+
+La tarde que empezó a llover en Villacobos, la radio local interrumpió la programación para ofrecer recomendaciones. No cruzar ramblas. No circular por zonas inundables. Evitar desplazamientos innecesarios. El locutor, que acababa de recibir un aviso de su mujer para recoger el coche del taller, repitió lo último dos veces y salió del estudio.
+
+La lluvia caía sobre los tejados como si alguien hubiera decidido cobrar de golpe todas las sequías de los últimos años. Las alcantarillas devolvían hojas, bolsas y un calcetín infantil que llevaba meses escondido en una rejilla. A las seis de la tarde, la encargada del centro de día llamó al Ayuntamiento para preguntar si debía evacuar. Le dijeron que esperara instrucciones.
+
+Esperar instrucciones es una actividad que las instituciones recomiendan con generosidad porque se desarrolla principalmente en otro edificio.
+
+El alcalde de Villacobos estaba en una comida de trabajo. No es un dato incriminatorio: los alcaldes comen, como el resto de los mamíferos, aunque suelen hacerlo rodeados de personas que han aprendido a llamar reuniones a las sobremesas. Le llegó un mensaje de la Policía Local. Lo leyó, pidió disculpas y salió al pasillo. Volvió siete minutos después y solicitó la cuenta.
+
+En el centro de día, Nerea, enfermera de refuerzo, tomó una decisión poco compatible con el procedimiento escrito: empezó a subir a los usuarios a la planta superior. No había recibido una orden formal. Había mirado por la ventana y visto que el agua entraba por la rampa de acceso. Conocía los nombres de todos, sabía quién necesitaba oxígeno y cuál de las sillas tenía la rueda izquierda bloqueada.
+
+Dos voluntarios del barrio acudieron con mantas. Uno llevó una batería portátil. El otro, que se llamaba Pepe y no era nuestro Pepe del bar aunque compartían la capacidad de meterse en asuntos ajenos, preguntó si podía ayudar a trasladar camas. Nerea le puso una en cada mano.
+
+En las catástrofes ocurre algo incómodo para los discursos: los buenos reflejos no siempre llevan corbata. Y las responsabilidades no desaparecen por el hecho de que aparezca un vecino generoso. Precisamente lo contrario. Que alguien tenga que salvar un problema a pulso obliga a preguntar qué debía haber estado preparado antes.
+
+A las siete y veinte el río alcanzó el borde del paseo. La carretera de la estación quedó cortada. Un operario de mantenimiento reclamó una excavadora para retirar un tronco de un puente. Le contestaron que no había maquinaria disponible. A las siete y media una empresa local envió un vehículo sin esperar contrato. El dueño preguntó después cómo cobraría. «Ya veremos», le dijeron. Era una frase con una larga tradición en obras públicas y una inquietante eficacia en situaciones de peligro.
+
+En otra ciudad, mucho más grande, habían celebrado durante semanas debates sobre una tragedia real ocurrida en octubre de 2024. La investigación judicial sobre la dana valenciana acumuló con el tiempo miles de folios, decenas de tomos y cientos de declaraciones. Es comprensible. Las decisiones de una administración deben poder reconstruirse cuando algo falla. Lo que resulta menos comprensible es la pasión con que el debate público se aficiona a los minutos de una comida mientras hay familias que todavía están aprendiendo a dormir con lluvia.
+
+Conviene, además, no usar a los muertos como munición de sobremesa. Hay gente que encuentra en cada tragedia la confirmación automática de todo cuanto pensaba la víspera. Es una habilidad muy útil: se puede cambiar de asunto sin modificar jamás la conclusión.
+
+En Villacobos nadie murió aquella noche. Eso no significaba que lo hubieran hecho todo bien. Tampoco que lo hubieran hecho todo mal. Los investigadores, si los hubiera, necesitarían horas, llamadas registradas, avisos meteorológicos y decisiones concretas. Los tertulianos necesitarían únicamente un vídeo de doce segundos, preferiblemente con música amenazante.
+
+El alcalde llegó al centro de día pasada la medianoche. Encontró a Nerea sentada en el pasillo, sin zapatos, con una manta sobre los hombros. Había perdido uno de los pendientes. Le dio las gracias. Ella aceptó el agradecimiento sin entusiasmo.
+
+—¿Os avisaron? —preguntó él.
+
+—El agua, principalmente.
+
+El alcalde bajó la vista. No era un monstruo ni un héroe. Era un hombre cansado que empezaba a comprender la diferencia entre gestionar una emergencia y describirla posteriormente. Le costó encontrar una frase que no sonara a comunicado.
+
+—Habrá que revisar los protocolos.
+
+—Sí —respondió Nerea—. Y la puerta de emergencia. No se abría.
+
+El lunes, cuando los equipos de limpieza todavía retiraban barro de la calle, apareció un cartel en el paseo: «VILLACOBOS RESISTE». Los voluntarios lo habían pintado a mano. No ponía el nombre de ningún partido. A los dos días llegaron los técnicos de comunicación de la Diputación con una versión impresa, más elegante y con cinco logotipos.
+
+La primera versión desapareció. Nadie supo quién se la llevó.
+
+Yo me quedaría con la de los voluntarios. No porque fuera más bonita. Porque todavía olía a pintura, había una letra torcida y alguien se había dejado una huella de barro en la esquina. De vez en cuando la realidad merece el pequeño privilegio de no ser corregida por un diseñador.
+
+La política volvió después a su discusión sobre los incendios propios y ajenos. En Villacobos, entretanto, alguien seguía secando documentos sobre un radiador.
+
+He escuchado defender la honradez de un dirigente con el argumento de que los otros robaron más. Es un método tan revolucionario de medir la integridad que merece ser aplicado a otros campos. Quizá los bancos deberían felicitar al cliente que presenta un descubierto pequeño si el del vecino es mayor. O los profesores aprobar al alumno que ha copiado solo dos respuestas, frente a otro que ha copiado siete. La verdad es que las notas subirían muchísimo y la educación pública volvería a ser motivo de orgullo.
+
+También se confunde el riesgo con la certeza. Hay quienes descartan cualquier advertencia sobre una política porque creen que es propaganda. Otros dan por inevitable el peor resultado imaginable porque ya desconfían de quien la propone. Ambos pueden salir de la conversación convencidos de haber demostrado algo. Y ninguno ha tenido que hacer el desagradable trabajo de mirar cómo se financiaría la medida.
+
+Y tampoco hacen falta lluvias torrenciales para observar la misma lógica. A veces basta una sala pequeña, una silla mal situada y un responsable que prefiere modificar las cifras antes que mover un tornillo.
+
+La primera persona que se quejó de la butaca número diecisiete fue un niño de ocho años. No protestó por la visibilidad ni por el precio de la entrada. Simplemente preguntó por qué el escenario terminaba antes de llegar a él.
+
+La madre se levantó, comprobó que desde su asiento tampoco se veía la mitad derecha y buscó a un acomodador. El acomodador la dirigió al conserje, el conserje al responsable de sala y el responsable de sala al formulario de incidencias. Allí apareció una palabra que la mujer no esperaba encontrar en una función escolar: interoperabilidad.
+
+El auditorio municipal de Valdeperdices tenía trescientas diecisiete localidades. Diecisiete estaban colocadas detrás de una columna estructural. Se sabía desde la inauguración porque la columna, a diferencia de los músicos, había asistido puntual a todas las funciones.
+
+El Ayuntamiento había encargado un estudio al arquitecto. El arquitecto respondió que las sillas cumplían las especificaciones del proyecto. Desde el punto de vista del proyecto, la columna no tapaba la visión: era el espectador el que había elegido colocarse detrás. La culpa de mirar por los ojos equivocados es una responsabilidad que rara vez se menciona en las memorias técnicas.
+
+A la semana siguiente, el asunto llegó al pleno. La concejala de Cultura, de los Coloraos, explicó que había heredado un edificio con problemas de diseño. El portavoz de los Azules replicó que los actuales responsables disponían de presupuesto para corregirlos. Una concejala independiente sugirió retirar las diecisiete sillas y vender entradas solo para las restantes. Su propuesta fue rechazada porque implicaba reconocer una pérdida de aforo, con el consiguiente deterioro del indicador cultural.
+
+Uno podría pensar que el público nunca había sido un indicador. La realidad es que el éxito de una actividad se mide a menudo por el número de personas que acudieron, no por cuántas consiguieron verla. Esto tiene aplicaciones muy cómodas en otros ámbitos. Si un hospital contara como curados a todos los pacientes que se presentaron en admisión, tendríamos la mejor sanidad del planeta y un problema extraordinario con los cementerios.
+
+El técnico de mantenimiento, un hombre al que llamaban Nacho aunque se llamaba Ignacio, propuso mover las sillas a la pared lateral. Había tomado las medidas con una cinta métrica de su casa. El traslado costaba cuatrocientos ochenta euros y una mañana de trabajo.
+
+—Hay que estudiar el efecto sobre el plan de evacuación —dijo el concejal de Seguridad.
+
+Nacho volvió a su taller. Allí tenía una radio pequeña, una fotografía de su hija vestida de abeja en una representación escolar y el plano del auditorio colgado detrás de una cortina. Había dibujado las sillas en una hoja cuadriculada. Cuando llegó su hija, que ahora tenía veintitrés años, le preguntó por qué seguía ocupándose de aquello.
+
+—Porque hay un crío que no ve el escenario.
+
+—Papá, ya no es el mismo crío.
+
+Era verdad. Habían pasado seis meses. La función escolar sería otra, con otros niños, y la madre probablemente llegaría antes para evitar la fila diecisiete. Así funcionan muchas reformas: sin modificar una sola silla, el sistema logra que la gente aprenda dónde no debe sentarse.
+
+En octubre organizaron una mesa de participación sobre accesibilidad cultural. Asistieron dos responsables municipales, cuatro técnicos, el gerente del auditorio, una empresa especializada y Nacho. La madre del niño no pudo ir; trabajaba de tarde. En el acta se hizo constar que no había representantes de los usuarios.
+
+Nacho pidió la palabra para explicar lo de las sillas. Le dijeron que el orden del día se refería a accesibilidad integral, no a incidencias específicas. Se calló. Había aprendido, con los años, a distinguir entre dos clases de reuniones: aquellas en las que alguien espera una solución y aquellas en las que la solución constituiría una falta de respeto.
+
+El informe definitivo recomendó desarrollar un estudio de movilidad, señalética, recorridos interiores y percepción de la experiencia escénica. Nadie podía acusarlo de no ser ambicioso. Costó seis mil ochocientos euros. Incluía una fotografía de las diecisiete sillas, pero tomada desde un ángulo que ocultaba la columna.
+
+La hija de Nacho encontró el informe en internet y se echó a reír.
+
+—Mira, papá. Al menos te han hecho caso.
+
+Él amplió la fotografía.
+
+—Han movido al fotógrafo.
+
+No recuerdo quién me contó esta historia, pero recuerdo que acabé consultando el precio de las entradas. Había descuentos para desempleados, jubilados y familias numerosas. No existía tarifa reducida para quien solo podía ver medio escenario. El Ayuntamiento todavía no había conseguido cuantificar aquella modalidad de disfrute parcial.
+
+En diciembre estrenaron una obra con música en directo. El director exigió que nadie se sentara en la fila diecisiete por motivos de seguridad. El gerente, después de varias llamadas, accedió a cerrar temporalmente aquellas localidades.
+
+El teatro obtuvo una ocupación del cien por cien.
+
+Las diecisiete sillas seguían allí.
+
+Pensé que quizá votar con la nariz tapada era solo otra versión de mirar el escenario desde una butaca donde no se ve la mitad: uno acaba acostumbrándose al obstáculo y culpando al actor.
+
+La vida democrática mejora cuando podemos diferenciar un error, una mentira, una promesa difícil y una decisión deliberadamente perjudicial. Empeora cuando todas ellas caben en la misma palabra, siempre que se refieran a los otros. A esa costumbre la llamamos firmeza. Desde fuera se parece mucho al problema que denunciamos.
+
+Yo también he votado alguna vez con la nariz tapada. No lo digo como confesión valiente. Es una habilidad fisiológica bastante extendida. La tragedia es que, cuando llevamos mucho tiempo haciéndolo, podemos terminar convencidos de que respirar era una extravagancia.
+
+# El socio 312
+
+El Club de Petanca La Concordia tenía trescientos once socios, tres presidentes y una pista con una ligera inclinación hacia el cobertizo de las bicicletas. Lo de los socios parecía un dato exacto hasta que un martes apareció uno nuevo con el número 312. A partir de ahí empezaron las dificultades.
+
+El hombre se llamaba Gaspar y acababa de jubilarse de la oficina de Correos. Había pagado la cuota, entregado una fotografía y recibido un carné plastificado donde su apellido aparecía con una erre de más. No se quejó. Había trabajado demasiado tiempo con sobres para exigir perfección a una institución que funcionaba gracias a un jubilado, dos carpetas y la paciencia de una mujer llamada Nati.
+
+Al llegar a su primera partida descubrió que no podía jugar. Existían tres listas de socios. En una figuraba con el número 312; en otra, el último inscrito era el 309; en la tercera, el socio 312 era un señor fallecido en 2019 cuya viuda continuaba pagando la cuota porque alguien le había dicho que así conservaría prioridad para la comida de Navidad.
+
+Nati abrió el armario de los papeles. Encontró tres libros de actas, dos sellos, seis trofeos con el mismo año y una carta de la Federación Provincial solicitando que el club aclarase quién tenía capacidad para firmar la solicitud de subvención. La carta estaba fechada diez meses atrás.
+
+El presidente oficial era Simón, elegido en una asamblea a la que habían asistido cuarenta y nueve socios. El presidente provisional era Benigno, que impugnó la votación porque, según él, el plazo de convocatoria no había respetado la costumbre histórica de avisar personalmente a los socios en el bar. El presidente honorífico era don Lorenzo, fundador del club, que consideraba ilegítima cualquier reunión celebrada sin su presencia y cuyo principal argumento jurídico consistía en recordar que él había puesto de su bolsillo la primera bombona de butano.
+
+Los tres hombres coincidían en cuestiones fundamentales. Querían una petanca moderna, un club unido y una mejora de los baños. Discrepaban, sin embargo, en quién debía anunciarla. Simón defendía un proyecto de renovación del local. Benigno exigía transparencia antes de cualquier gasto. Don Lorenzo proponía volver a los baños de antes, que no estaban especialmente bien, pero habían sido pagados por gente conocida.
+
+La discusión se prolongó hasta que Gaspar preguntó si podía echar una partida.
+
+Gaspar salió al patio. Se sentó en un banco, sacó las bolas nuevas del estuche y comenzó a practicar solo. Cada lanzamiento se desviaba ligeramente hacia el cobertizo. A la tercera bola comprendió que había un problema con la nivelación de la pista. Fue hasta el almacén y encontró un rastrillo y una carretilla de arena.
+
+Cuando los tres presidentes salieron de la reunión, la pista estaba mucho más nivelada.
+
+La presidenta de la comunidad apareció en la reunión con una maceta de plástico y la mirada de quien ha encontrado una prueba del delito. A esas alturas de nuestra historia Paqui ya había presidido tantas reuniones que confundía el orden del día con el orden natural de las cosas. Llevaba la maceta dentro de una bolsa de supermercado y la dejó sobre la mesa con el mismo cuidado que una fiscal deposita el arma homicida.
+
+—Esto —dijo— estaba en la zona común.
+
+Nadie contestó. Los asuntos de la comunidad tienen un momento inicial de silencio que en los tribunales suele reservarse a la lectura de la acusación. Manolo, que había venido porque su bar alquilaba el local de la esquina, miró la planta. Era un geranio triste, de los que necesitan menos un jardinero que un sacerdote.
+
+—¿Y qué hace aquí? —preguntó.
+
+—Probar que alguien ha ocupado ilegalmente un elemento comunitario.
+
+—¿El geranio?
+
+—El espacio.
+
+Un vecino de la cuarta planta levantó la mano para preguntar si el macetero había sido fotografiado antes de moverlo. Paqui mostró doce imágenes tomadas desde ángulos diferentes. En una se veía el geranio. En las otras once, el coche de Pepe aparcado donde no debía. Pepe acusó a Paqui de instrumentalizar las pruebas y ella respondió que era imposible instrumentalizar una fotografía. Se equivocaba. Con las fotografías se instrumentalizan hasta las fiestas de cumpleaños.
+
+La comunidad había adquirido el año anterior dos jardineras de madera para separar visualmente el portal del aparcamiento. Habían costado setecientos cuarenta euros. Algunos habían protestado por el precio. Otros por el color. Uno exigió una certificación de que la madera procedía de explotaciones sostenibles y después dejó una colilla encendida en el interior de una de ellas. Se abrió un debate sobre la convivencia que duró tres meses, durante los cuales las jardineras permanecieron vacías.
+
+Paqui había decidido que no volviera a suceder.
+
+—Se acabaron las iniciativas personales. Para colocar una planta se solicita autorización.
+
+—¿A quién? —preguntó Encarna, que estaba allí porque la hija tenía un piso en el tercero.
+
+—A la junta.
+
+—¿Y la junta se reúne cuándo?
+
+—Cuando hay asuntos que tratar.
+
+—Pues ya tiene uno.
+
+A veces una pregunta sencilla acaba con toda una construcción institucional. Encarna no había estudiado Derecho y se le notaba: todavía creía que las palabras servían para nombrar las cosas.
+
+Me gustaría afirmar que asistí a aquella reunión por responsabilidad cívica. Mentiría. Fui porque quería que arreglaran el muelle de la puerta del garaje, que llevaba dos meses cerrando a golpes y había desarrollado la costumbre de anunciar nuestra llegada con la discreción de un cañonazo. También porque el vecino del segundo había enviado un audio de ocho minutos afirmando que la instalación de un espejo panorámico podía vulnerar el derecho a la propia imagen. Hay mensajes que uno escucha por deber democrático y otros por el mismo impulso que nos hace mirar un accidente de tráfico.
+
+La discusión degeneró cuando Pepe, hasta entonces defensor de la libertad vegetal, propuso una derrama para contratar una empresa de jardinería.
+
+—¿Y cuánto costaría? —preguntó Paqui.
+
+—No sé. Que lo mire el administrador.
+
+—¿Pero estás dispuesto a pagar?
+
+—Depende.
+
+Se produjo entonces una revelación que los teóricos del contrato social no han sabido expresar con suficiente claridad: en casi todas las discusiones sobre el bien común hay un instante en que alguien pronuncia la palabra «depende» y se hace la luz.
+
+Pepe estaba dispuesto a tener plantas. No estaba dispuesto a pagarlas. Paqui estaba dispuesta a pagar plantas siempre que nadie las eligiera sin consultarla. Manolo prefería que la zona común tuviera un banco, pero no deseaba que nadie se sentara en él después de cerrar el bar. Yo quería una puerta que no pareciera estar siendo asaltada por un ariete. Nadie consiguió identificar a un vecino que deseara, sencillamente, que las cosas funcionaran.
+
+En el último punto, el administrador explicó que el muelle podía cambiarse por ciento cuarenta y ocho euros. Lo había presupuestado un cerrajero del barrio. Paqui preguntó por qué no se había pedido una segunda oferta. Pepe propuso una tercera. El vecino del segundo reclamó un estudio de impacto acústico. La votación quedó aplazada.
+
+Dos días después, la puerta golpeó a Encarna en la cadera. No fue grave, según el parte médico. Esa frase posee una utilidad extraordinaria: permite que el problema deje de ser urgente en el mismo momento en que alguien ha tenido que ir al médico. Encarna se pasó una semana con moratones y una indignación que no precisaba receta.
+
+En el grupo de vecinos llegaron sesenta y tres mensajes. Catorce incluían la palabra solidaridad. Diecisiete solicitaban prudencia antes de señalar culpables. Nadie llamó al cerrajero.
+
+El sábado por la mañana apareció una jardinera nueva junto al portal. Era de color verde y llevaba un geranio espléndido. Pepe hizo una fotografía y preguntó en el chat quién la había autorizado. Paqui contestó que se estudiaría en la siguiente junta.
+
+La puerta del garaje siguió dando golpes durante otras tres semanas. Fue Encarna quien llamó finalmente al cerrajero, pagó el arreglo y presentó el recibo en administración. La comunidad votó por unanimidad reintegrarle el importe. Aquella fue nuestra única decisión unánime de todo el año.
+
+No porque hubiéramos aprendido algo. Simplemente porque resultaba muy difícil discutir con una señora que sostenía un recibo de ciento cuarenta y ocho euros y te miraba como si estuviera calculando cuánto pesabas.
+
+El geranio floreció en mayo. Paqui pidió que constara en acta que la iniciativa había sido de la presidencia.
+
+Volvimos a la pista de petanca. La ligera inclinación seguía allí, indiferente a la presidencia, a las mociones y a la salud de los geranios de otras comunidades.
+
+Benigno examinó el suelo y anunció que la actuación debía registrarse en el libro de mantenimiento. Don Lorenzo sostuvo que la pista original tenía su pendiente por razones históricas. Nati, desde la puerta, preguntó si alguno pensaba traer un nivel de burbuja en lugar de dar discursos. Nadie contestó.
+
+El domingo hubo asamblea extraordinaria. Se debatió durante dos horas sobre la capacidad de Gaspar para realizar trabajos en la instalación. Alguien propuso agradecerle la ayuda. Otro exigió comprobar si estaba asegurado. Finalmente se aprobó por mayoría crear una comisión encargada de elaborar un reglamento de mantenimiento voluntario.
+
+Gaspar pidió que le devolvieran la cuota. Había descubierto una asociación de gran interés sociológico, pero buscaba un lugar donde jugar a la petanca.
+
+Nati le convenció para quedarse. Quedaban pocas personas dispuestas a arreglar una pista antes de preguntar quién iba a salir en la fotografía.
+
+Aquella tarde, mientras los socios disputaban un pequeño campeonato, los tres presidentes comparecieron ante el fotógrafo del periódico local. Se colocaron junto al cobertizo y anunciaron un acuerdo histórico para la modernización del club.
+
+En la imagen, detrás de ellos, aparecía Gaspar con una bola en la mano.
+
+El pie de foto lo identificó como «un socio que pasaba por allí».
+
+# La última ronda
+
+La noticia de que Manolo Bernal iba a cerrar La Parada cayó sobre San Bartolomé con la gravedad que se reserva a los acontecimientos irreversibles. Algunos clientes llevaban allí más tiempo que la placa de la calle. Para ellos, cambiar de bar resultaba una decisión de consecuencias comparables a mudarse de continente. La gente aceptaba sin dificultad que un banco desapareciera, que una tienda se convirtiera en otra cosa o que el Ayuntamiento levantara la plaza por tercera vez. Pero la idea de tomar el café en un sitio distinto se consideraba una concesión intolerable al progreso.
+
+Manolo había decidido jubilarse. No estaba enfermo, no debía dinero y no había sido presionado por una gran cadena hostelera. Sencillamente estaba cansado de levantarse a las seis para explicar que la tortilla seguía siendo de patata. Su hija heredaría el local y pensaba renovarlo. Quería más luz, menos mesas y una carta más corta. Manolo decía que eso último era imposible, porque la carta ya cabía en una página.
+
+Organizó una última cena para los habituales. Llegaron vecinos, proveedores, empleados antiguos y algunos políticos que no habían pisado el local desde la última campaña. La sala estaba llena de conversaciones que empezaban por «¿te acuerdas de...?». Casi ninguna terminaba en la misma versión de los hechos.
+
+Aurelio Perdigón acudió con su cámara. Traía un sobre con recortes viejos. En una fotografía de 2008 se veía el comedor durante la presentación de una candidatura vecinal. En otra, fechada cuatro años más tarde, aparecía el mismo grupo celebrando un acuerdo de gobierno con personas a las que antes habían llamado de todo. Las mesas parecían haber sido testigos de la historia comarcal con una discreción que no habían compartido quienes las ocupaban.
+
+Candelaria Peñarrocha llegó a las nueve y cuarto. Saludó a Manolo con un beso y le entregó una pequeña planta. Evaristo Mangarrán entró veinte minutos después con una botella de vino. Durante unos segundos quedaron separados por el pasillo, observándose con esa solemnidad habitual en quienes saben que alguien puede estar fotografiándolos.
+
+Manolo los sentó en extremos diferentes de una mesa larga. No era una decisión política. Conocía demasiado bien las preferencias alimentarias de ambos: a Candelaria le molestaba la corriente de la puerta; Evaristo quería quedar cerca de la cocina para pedir la carne poco hecha sin levantar la voz.
+
+La cena fue sorprendentemente agradable. Hablaron de antiguos camareros, del precio del aceite, del equipo juvenil de fútbol y del reloj de Villacobos. Cuando alguien recordó que el mercado de abastos seguía cerrado, dos personas empezaron a discutir, pero Manolo apareció con una fuente de croquetas y consiguió lo que la corporación municipal no había logrado en diecisiete años: que todos se pusieran de acuerdo sobre una cosa.
+
+A las once y media Aurelio se sentó a la mesa siete. Allí seguía la vieja bandeja de metal donde Manolo depositaba las cuentas. Debajo encontró una servilleta doblada y el recibo de un almuerzo de hacía tres años. Era una cuenta corriente, sin nombres, pero tenía una anotación al dorso: «Jueves 8:15, llamar a Tomás». Se acordó de la nota que Manolo le había mencionado meses atrás. No era suficiente para ningún titular. Quizá tampoco fuera suficiente para una conversación. La guardó en su bolsillo con la vaga promesa de comprobar quién era Tomás.
+
+Antes de cerrar, Manolo salió de la cocina con un pequeño libro de tapas negras. Había guardado allí los nombres de clientes que le debían alguna comida y los de quienes habían pagado a otros sin que estos lo supieran. Lo dejó sobre la barra y pidió a su hija que no lo tirara.
+
+Manolo conocía también a clientes que guardaban más secretos que dinero en la cartera. Uno de ellos llegó un jueves con una gabardina, una libreta y una manera de mirar los enchufes que habría inquietado a un inspector de electricidad.
+
+Melquíades Villacero llegó al Bar La Parada con una gabardina de color piedra y el aire cansado de quien ya ha visto demasiado mundo para confiar en la discreción de una tostadora. Pidió un café solo, preguntó si había enchufes junto a la mesa y eligió el rincón del fondo. Manolo le indicó que allí se sentaba quien llegaba primero y que, además, el enchufe no funcionaba. Melquíades eligió el sitio de todos modos.
+
+En la barra, Pepe estaba explicando que el país necesitaba mano dura.
+
+—Pero una mano dura de verdad. No estas tonterías.
+
+—¿Para qué? —preguntó Sole.
+
+—Para poner orden.
+
+—Empieza por pagar el recibo de la comunidad.
+
+Pepe miró al techo con una expresión de estadista incomprendido. Llevaba tres cuotas pendientes y una teoría muy elaborada sobre los excesos del Estado. Era partidario de reducir la administración a la mitad, salvo cuando tenía que recoger un paquete, reclamar una subvención o conseguir que le quitaran una multa. En esas circunstancias, su modelo de Estado era una señora competente que resolviera personalmente su problema antes del almuerzo.
+
+Melquíades abrió una libreta. No era una libreta corriente. Tenía tapas de piel gastada, pequeñas etiquetas alfabéticas y una cinta roja que salía por abajo como la lengua de un animal agotado. Alguien la miró con curiosidad. Melquíades la cerró.
+
+La libreta causó más impresión que su dueño. Quizá porque en nuestro país hemos aprendido a temer a los hombres que toman notas, especialmente cuando no se sabe si trabajan para la policía, para un periódico o para Hacienda. La diferencia entre los tres colectivos se aprecia bastante bien en las facturas.
+
+—¿Usted era policía? —preguntó Manolo mientras le dejaba el azúcar.
+
+—Entre otras cosas.
+
+Es una respuesta magnífica. Nadie puede refutarla y sirve para presentar un currículum que no conviene imprimir entero.
+
+Melquíades había pasado décadas moviéndose cerca de despachos ministeriales. Su trabajo formal era difícil de explicar incluso en la época en que lo hacía. Después de jubilarse, el problema se multiplicó. Algunos lo habían tratado como un hombre indispensable; otros aseguraban no saber quién era. Todos parecían recordar vagamente que alguien le había abierto alguna puerta.
+
+En la televisión se hablaba del juicio por la operación Kitchen. En julio de 2026 había quedado visto para sentencia el procedimiento sobre una supuesta operación parapolicial de 2013. Los años no cabían cómodamente en una línea de tiempo televisiva, por lo que los programas preferían reproducir grabaciones y fotografías. Es difícil competir en audiencia con un audio. La prueba documental necesita que alguien la lea; una grabación puede oírse mientras uno prepara lentejas.
+
+Sole señaló la pantalla.
+
+—¿No se parece usted a ese señor?
+
+Melquíades levantó la vista. En la imagen aparecía un comisario retirado con cara de tener cuentas pendientes hasta con el mobiliario de la sala.
+
+—Muchísima gente se parece a otra —dijo.
+
+—Ya, pero usted ha traído la misma libreta.
+
+Melquíades tomó el café de un sorbo. Pagó dos euros y treinta céntimos. Manolo observó que se había dejado veinticinco céntimos de propina, una cantidad demasiado exacta para resultar generosa.
+
+A la tarde siguiente apareció Raimundo Salvatierra, antiguo responsable de Interior en una administración lejana. Vestía un traje azul marino impecable y llevaba un paraguas cerrado aunque hacía treinta y cinco grados. Melquíades se levantó para saludarlo. Lo hizo con una cordialidad que parecía ensayada para una fotografía que nadie quería hacerse.
+
+—No sabía que venías por aquí —dijo Raimundo.
+
+—Nunca aviso.
+
+—Es un mal hábito.
+
+—Depende de quién reciba el aviso.
+
+Pidieron agua. Hablaron de salud, de vacaciones y de un antiguo compañero fallecido hacía años. Luego Raimundo bajó la voz. Manolo, que jamás escuchaba deliberadamente las conversaciones, encendió la cafetera y se alejó.
+
+Pepe estaba convencido de que aquellos dos ocultaban algo. En concreto, la misma cosa que él habría ocultado de encontrarse en una mesa con ellos: una conversación interesante que podría contar después como propia.
+
+Cuando Raimundo salió, Melquíades permaneció sentado mirando el fondo de la taza. Lucía, la periodista, entró para comprar un bocadillo y vio la libreta sobre la mesa. Reconoció al hombre del rostro anónimo que acompañaba a ministros en fotografías antiguas. Le preguntó si aceptaría una entrevista.
+
+—¿Sobre qué?
+
+—Sobre lo que quiera contar.
+
+Melquíades sonrió.
+
+—Señorita, si contara todo lo que sé, no terminaríamos nunca.
+
+Esta frase ha servido para vender memorias, fabricar amenazas, promocionar programas y evitar preguntas concretas desde que el ser humano aprendió a insinuar. No demuestra que alguien sepa mucho. Demuestra que comprende perfectamente la rentabilidad de que los demás lo crean.
+
+Lucía abrió su cuaderno.
+
+—Empecemos por algo sencillo. ¿A qué se dedicaba usted en 2013?
+
+Melquíades dejó de sonreír. Miró hacia la barra, donde Pepe había pedido otra caña y discutía con Manolo por una aceituna que no figuraba en el plato.
+
+—A trabajar —respondió.
+
+—¿Para quién?
+
+—Eso tendrá que preguntárselo a quien me pagaba.
+
+Lucía anotó la frase sin adornos. Le pareció pobre como titular y excelente como pregunta pendiente.
+
+Antes de irse, Melquíades se acercó a Pepe y le dijo que tuviera cuidado con lo que hablaba delante de desconocidos. Pepe abrió mucho los ojos.
+
+—A mí no me da miedo nadie.
+
+—Mejor. Así hablará más.
+
+Manolo esperó a que Melquíades saliera para apagar el televisor. En la mesa quedó la marca circular del vaso. Ni una grabadora, ni un papel. Solo veinticinco céntimos de propina.
+
+Pepe se inclinó hacia Manolo.
+
+—¿Tú crees que nos habrá grabado?
+
+—Si lo ha hecho —respondió el camarero—, espero que me pague los derechos de la conversación. Llevas dos horas hablando tú solo.
+
+Manolo enjuagó la taza y siguió con su última ronda. Había escuchado suficientes confidencias como para saber que el problema no era lo que la gente contaba, sino lo que creía que los demás estaban obligados a olvidar.
+
+—Muy poco. Los que más hablan de dinero son casi siempre los que pagan al contado.
+
+A las doce, la mayoría se había marchado. Candelaria recogió su abrigo. Evaristo buscó en la pared una foto del primer equipo infantil de San Bartolomé y empezó a señalar jugadores que ya eran padres. Durante un momento parecieron dos personas normales hablando de otras personas normales. Manolo pensó que quizá no hubiera una diferencia tan grande como la gente imaginaba entre los hombres que discutían por televisión y los que le pedían pan a mitad de comida.
+
+Después oyó que ambos retomaban una vieja discusión sobre la plaza Mayor. Uno recordó un presupuesto, el otro una promesa. Se fueron elevando las voces y, durante unos segundos, el restaurante recuperó el ambiente de sus mejores martes.
+
+En la puerta, Aurelio sacó la cámara para hacer una última fotografía. Pidió a los dos políticos que se colocaran junto al dueño. Evaristo pasó un brazo por encima de los hombros de Manolo. Candelaria sonrió con verdadera tristeza. El fotógrafo hizo tres tomas.
+
+En la tercera, Manolo se había vuelto hacia la cocina porque su hija estaba apagando la última luz.
+
+El lunes comenzaron las reformas. Los obreros retiraron dos paneles de madera, desmontaron el antiguo reloj de pared y encontraron detrás una pequeña fotografía amarillenta de un banquete que nadie recordaba. En ella aparecían varios políticos de distintos partidos sentados juntos, riéndose a carcajadas. La mayoría había terminado su carrera y unos cuantos ya no estaban vivos. El único nombre escrito al dorso era el del cocinero.
+
+Por la tarde, su hija recibió una llamada del Ayuntamiento. Querían saber si podían organizar en el nuevo local una jornada de diálogo y participación ciudadana. Habían pensado titularla «La política del encuentro» y necesitaban presupuesto para sesenta personas.
+
+Manolo le recomendó aceptar el encargo, cobrar una señal y revisar la instalación eléctrica antes de que llegaran los micrófonos.
+
+Había pasado treinta y siete años dando de comer a la comarca.
+
+No veía razón para que la política dejara de pagar la cuenta.
+
+# Salimos en la foto
+
+El retrato de despedida de La Parada llegó al periódico antes que el aviso del cierre. Lucía lo descubrió una mañana de martes, al abrir el correo de prensa del Ayuntamiento. El asunto decía «UN PUEBLO QUE SE ENCUENTRA» y venía acompañado de diecisiete fotografías, una nota institucional de cuatro páginas y una invitación a participar en unas jornadas sobre participación ciudadana. La fotografía de Manolo era la número once.
+
+En la primera aparecía Evaristo Mangarrán inaugurando un paso de peatones. En la segunda, Evaristo junto al paso de peatones. En la tercera, Evaristo señalando el paso de peatones, que es una de las profesiones auxiliares más antiguas de la política municipal. En la cuarta se veía a un concejal de espaldas, probablemente porque la presencia de un segundo rostro había complicado el equilibrio de la composición.
+
+Lucía abrió la número once. Manolo estaba entre Evaristo y Candelaria, pero se había vuelto hacia la cocina justo cuando Aurelio disparó. Su hija apagaba la última luz del restaurante. La imagen tenía algo que ninguna de las otras dieciséis había conseguido: dos personas pendientes de algo que no era la cámara.
+
+—Esta me gusta —dijo Lucía.
+
+Aurelio se acercó con el café.
+
+—El alcalde sale con los ojos medio cerrados.
+
+—Eso es lo mejor que tiene.
+
+—Publícala, pues. Pero no pongas que es un gesto simbólico. La gente ha empezado a llamar simbólico a todo lo que no le da tiempo a explicar.
+
+En la nota del Ayuntamiento se agradecía a Manolo su contribución al desarrollo de la convivencia. Era un reconocimiento merecido, aunque algo impreciso. Durante treinta y siete años había impedido más peleas cambiando de tema que todos los concejales reunidos cambiando de gobierno. Había separado a dos primos por una herencia, calmado a tres padres de un equipo de fútbol infantil y convencido a un funcionario de que una mesa llena de platos no era el lugar apropiado para anunciar una reestructuración administrativa. Nada de aquello figuraba en la memoria de actividades.
+
+El problema de las memorias públicas no es que mientan siempre. Es que tienen una preferencia sentimental por los acontecimientos con fotógrafo. Hay trabajo que no hace ruido, como mantener una caldera en marcha o acordarse de que la vecina del tercero no puede cargar con la compra. Y hay trabajo que empieza después de convocar a la prensa para anunciar que va a empezar. Los dos se llaman servicio, pero solo uno suele necesitar un fondo con logotipos.
+
+Aquella tarde, el Ayuntamiento recibió una propuesta para organizar en el nuevo local una jornada de «escucha activa». El programa incluía una bienvenida, tres mesas de debate, una pausa para café y una sesión final de conclusiones. La gente que iba a hablar ocupaba nueve páginas; las personas a las que se proponían escuchar, una línea.
+
+Manolo la leyó desde la cocina, todavía con una pared sin terminar y el olor a pintura pegado a las cortinas.
+
+—¿Y cuánto pagan? —preguntó.
+
+Su hija le dijo la cantidad.
+
+—Entonces escúchalos tú, que yo ya estoy jubilado.
+
+La noticia saltó de un grupo de WhatsApp a otro. Paqui se indignó porque el Ayuntamiento gastase dinero en escuchar lo que, según ella, los vecinos llevaban años diciendo gratis. Pepe respondió que la participación había que organizarla, que de lo contrario hablaban siempre los mismos. Lo escribió en siete mensajes consecutivos. Sole guardó el periódico en un cajón junto a la portada que anunciaba que por fin se inauguraría el ascensor y otra que celebraba la decisión de estudiarlo. Con dos titulares así se podía reconstruir una legislatura casi entera, siempre que uno no necesitara subir a la cuarta planta.
+
+A Encarna no le interesaban demasiado las jornadas. Tenía cita para renovar un documento y estaba preparando el trayecto al edificio municipal. Había calculado las escaleras, los descansillos y la hora a la que la farmacia abría, porque aprovechaba el viaje para recoger unos medicamentos. Las personas mayores desarrollan una especie de ingeniería logística con la que consiguen hacer en una mañana lo que a otros les ocupa una reunión extraordinaria.
+
+La vi en la puerta de La Parada, donde habían dejado un banco mientras terminaban la fachada. Estaba sentada con una carpeta apoyada sobre las rodillas. Me preguntó si sabía cuándo volverían a abrir.
+
+—Pronto, dicen.
+
+—Eso dijeron del ascensor.
+
+—Esta vez hay albañiles dentro.
+
+—También los había al principio.
+
+No insistí. Con Encarna nunca era prudente utilizar pruebas que uno no había comprobado personalmente.
+
+En el bolsillo llevaba mi teléfono. Había pasado los últimos diez minutos leyendo una discusión sobre un escándalo nacional. Unos defendían a un antiguo cargo con una vehemencia que habría emocionado a su abogado. Otros exigían una condena inmediata y se mostraban profundamente ofendidos por la existencia de trámites procesales. De los dos grupos, ninguno parecía disponer de más información que una fotografía desenfocada y un titular en mayúsculas.
+
+Yo había estado a punto de escribir una respuesta bastante brillante. La tenía preparada, con una comparación histórica y un remate que seguramente habría provocado tres aprobaciones de personas que ya pensaban como yo. Encarna me preguntó si podía ayudarla a leer el número de expediente, porque había olvidado las gafas. Guardé el teléfono. Fue una pérdida considerable para el debate público.
+
+El papel decía que debía aportar una copia compulsada de un documento que ya constaba en su expediente. Lo comprobamos dos veces. No parecía un engaño, sino uno de esos pequeños encuentros entre sistemas informáticos que producen, de forma natural, más papeleo del que había antes de informatizarlos.
+
+—Pues tendremos que llevarlo —dije.
+
+—Tendrás —corrigió ella—. Yo voy a llevar el original. Las piernas no me dan para hacer de fotocopiadora.
+
+Lucía llegó poco después con la cámara al cuello. Quería hacer una fotografía de la reforma para acompañar su artículo sobre el restaurante. Vio a Encarna y nos preguntó si podíamos apartarnos un momento del banco.
+
+—¿Para que salga vacío? —preguntó Encarna.
+
+—Para que se vea la fachada.
+
+—Ah. Es que se ve mejor si no hay gente.
+
+Lo dijo sin enfadarse, como quien constata una propiedad del mobiliario urbano. Lucía enrojeció. Bajó la cámara, pidió disculpas y decidió fotografiar al albañil que salía con un cubo de escombros. El hombre le preguntó si era obligatorio sonreír. Lucía dijo que no. Fue la primera fotografía que hizo aquella semana en la que alguien parecía genuinamente aliviado.
+
+Aurelio recibió las imágenes esa noche. Eligió la del albañil, porque la de la fachada tenía demasiado polvo y porque, al fin y al cabo, alguien tendría que explicar qué había sucedido entre la última ronda de Manolo y la próxima inauguración. La publicó a dos columnas. El artículo tuvo menos visitas que el vídeo de un concejal tropezando con el bordillo nuevo, pero alguien llamó al periódico para preguntar el nombre del trabajador.
+
+Lucía tuvo que buscarlo. No figuraba en la nota municipal ni en la factura que habían facilitado para justificar las obras. Aparecía la empresa, la cifra y una partida titulada «Adecuación del espacio para usos polivalentes». El nombre estaba en la firma de un albarán que Manolo había guardado en un cajón: Tomás Rivas. Llevaba dos semanas empezando a las siete y media y había pedido una sola cosa, que no aparcasen delante de la puerta porque tenía que entrar los materiales.
+
+El viernes apareció el periódico. Tomás lo compró antes de ir a la obra y se lo enseñó a su hija. A ella le hizo gracia que saliera tan serio. Él le dijo que era difícil sonreír sujetando un cubo lleno.
+
+En el Ayuntamiento preparaban ya el cartel de las jornadas. Una diseñadora propuso utilizar la fotografía de Manolo con Evaristo y Candelaria. Cabían los tres, pero al añadir los logotipos se quedaba fuera un extremo. No hubo discusión: se recortó por el lado de la cocina, justo donde la hija apagaba la luz.
+
+La imagen quedó más limpia.
+
+No sabría decir si mejor.
+
+## EPÍLOGO
+
+# Volver a subir
+
+Volví a San Bartolomé una mañana en la que no se inauguraba nada. La ausencia de autoridades producía en la plaza un silencio extraño, como cuando se apaga la música de una verbena y uno descubre que los pájaros han seguido allí todo el tiempo.
+
+En el edificio de Atención al Ciudadano encontré a Encarna frente al ascensor. Seguía llevando la carpeta de cintas elásticas, aunque ahora usaba un bastón pequeño que apoyaba contra la pared para buscar sus papeles. Me reconoció por haberla acompañado una vez hasta Registro.
+
+—¿Viene por lo del cuatro? —pregunté.
+—No. Vengo a por un certificado. Pero me han dicho que lo han arreglado y quiero verlo antes de que se arrepientan.
+
+Pulsó el botón. La cabina llegó enseguida. Entramos y, sin demasiada ceremonia, marcó el cuatro. La pantalla pasó del uno al dos, del dos al tres y, por primera vez en lo que ella recordaba, del tres al cuatro. No hubo aplausos ni corte de cinta. El motor se detuvo con un suspiro tan discreto que parecía avergonzado de haber dado la nota.
+
+Las puertas se abrieron ante un pasillo recién pintado. A la derecha había tres macetas, dos sillas y un cartel que anunciaba que el Registro General se había trasladado a la planta tercera. Encima de la nota aún se adivinaba el contorno de otra, retirada con tanta prisa que había dejado cuatro chinchetas.
+
+Encarna no dijo nada. Miró la puerta del ascensor, miró el cartel y volvió a guardar sus papeles. Yo busqué una frase que estuviera a la altura del momento, pero ella fue más rápida.
+
+Bajamos al tercero. Allí, en una pared próxima a la ventanilla, habían colgado una fotografía de la primera inauguración: Evaristo, Candelaria, el presidente de la Diputación y una fila de personas que sonreían por motivos distintos. Alguien había añadido una plaquita nueva bajo el marco.
+
+Encarna pasó de largo. Tenía número para las doce y cuarto y no quería perder el turno. Yo me quedé un momento delante de la fotografía. En la esquina ya no se veía a la mujer del chaleco amarillo. Supuse que el nuevo marco era un poco más estrecho.
