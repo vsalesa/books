@@ -4,6 +4,12 @@
 **Estado:** novela satírica ilustrada en revisión editorial.  
 **Última edición verificada:** **V4.06.1 REV02.1** — **139 páginas A5**, Canva `DAHauUTL81o` (12 de noviembre de 2026).
 
+## Empezar por aquí
+
+- **[Plan de continuación, estado y próximas tareas](PLAN_DE_CONTINUACION.md)**
+- [Seguimiento en GitHub Issues](https://github.com/vsalesa/books/issues)
+- [Decisiones y errores históricos que no debemos repetir](editorial/HISTORIAL_DECISIONES_Y_ERRORES.md)
+
 ## Edición vigente
 
 - [Abrir / editar en Canva](https://www.canva.com/design/DAHauUTL81o/edit)
