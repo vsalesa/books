@@ -2,7 +2,7 @@
 
 **Autor:** Víctor Salesa Sanz  
 **Estado:** novela satírica ilustrada en revisión editorial.  
-**Última edición verificada:** **V4.06.1 REV02.1** — **139 páginas A5**, Canva `DAHauUTL81o` (12 de noviembre de 2026).
+**Última revisión literaria:** **V4.06.1 REV03** — 134 páginas A5 en PDF local verificado, con cierres corregidos (27 de noviembre de 2026). **Base gráfica Canva intacta:** V4.06.1 REV02.1 (139 páginas).
 
 ## Empezar por aquí
 
@@ -11,6 +11,13 @@
 - **[Plan de continuación, estado y próximas tareas](PLAN_DE_CONTINUACION.md)**
 - [Seguimiento en GitHub Issues](https://github.com/vsalesa/books/issues)
 - [Decisiones y errores históricos que no debemos repetir](editorial/HISTORIAL_DECISIONES_Y_ERRORES.md)
+
+## Nueva revisión REV03
+
+- **[Manuscrito revisado íntegro](fuentes/MANUSCRITO_V4_06_1_REV03_CIERRES_APLICADOS.md)**, texto respaldado en GitHub.
+- [Registro de cambios reales antes/después](editorial/ANEXO_CAMBIOS_LITERALES_CIERRES_REV02_1_2026-11-27.md).
+- [Compilación PDF automatizada en GitHub](https://github.com/vsalesa/books/actions/workflows/compilar-cuanto-mejor-peor-rev03.yml). La edición de lectura se publicará en `ediciones/V4_06_1_REV03/` solo si el workflow finaliza correctamente; no equivale al PDF de arte final de alta resolución.
+- PDF ilustrado local REV03: 134 páginas, SHA-256 `d945fd4ea4c4bbec0b881d8be8daf5cedbfa7426303f4444788f74880a810641`. **Todavía no consta respaldo binario de esta copia en GitHub**.
 
 ## Edición vigente
 
