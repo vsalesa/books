@@ -16,7 +16,8 @@
 
 ## No confirmado / pendiente
 
-- [ ] **Confirmar en GitHub el PDF binario REV03**: PDF ilustrado local (44 MB) y compilación de lectura generada mediante Actions son dos artefactos distintos; verificar el resultado del workflow, sin declararlos equivalentes.
+- [x] **PDF binario de lectura REV03 confirmado en GitHub**: [descarga](ediciones/V4_06_1_REV03/Cuanto_mejor_peor_V4_06_1_REV03_LECTURA_GITHUB.pdf), 134 páginas A5, 5.735.198 bytes, SHA-256 `6991b224b39ef2771b6270f2d174f65d3df78d8c4ba2e327491e5df182b11b4c`. Workflow [ejecución #3](https://github.com/vsalesa/books/actions/runs/46047657471) correcta.
+- [ ] **Subir PDF ilustrado local de alta resolución REV03** (44.008.375 bytes, hash distinto); el PDF de lectura alojado en GitHub utiliza miniaturas, no los originales de impresión.
 
 - [ ] Comprobar si existe en una sesión Codex inaccesible una versión posterior a REV02.1; el informe aportado por el usuario del 12/11 describe también REV02.1, no otra versión.
 - [ ] Recuperar los binarios originales **V4.06.1 REV02.1** del entorno local de Codex: PDF recompuesto, ZIP de materiales, seis PNG nuevos, manifest de imágenes, Word sincronizado si existe. La ruta `C:/Users/adria/Documents/Codex/2026-11-12/referenced-chatgpt-conversation-this-is-an/outputs/` solo es accesible en el equipo del autor, no desde este entorno.
